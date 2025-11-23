@@ -1,6 +1,5 @@
 # sobre-mim
 
-`
 Recentemente entendi algumas partes minha internas; auto-conhecimento, paracosmo e a intuição que existe dentro de mim, junto as diversas coisas que já sofri. É muito importante escrever isso e colocar assim no tempo aqui no YouTube. Tem muitas coisas que as pessoas não entendem sobre o que é fazer acontecer, aquilo que moldamos e dissertamos então aplicamos. É uma coisa incomensuravel a mente, a alma, aquilo que é seu espírito superior e toda a áurea que consiste ao redor de nós.
 
 É uma coisa engraçada, muitas pessoas resumem a inteligência somente as questões céticas e materiais. Não há como deixar de críticar essas posições. Tem uma coisa muito linda na capacidade que pode existir em nós, e permite ir além, a presença pela busca em deduzir a estrutura que consiste outra estrutura, de praticar engenharia sobre modelos do conhecimento, de recuperar novamente a busca pela revelação de verdades sútils sobre conhecimentos da realidade. É bonito como necessariamente, a verdade nunca é criada, ela é revelada. Se o conhecimento surgisse de aqueles que ficam preso a dogmas coletivos, de autoridades por via da razão somente, então o mundo séria mais perturbador do que já é. Algo muito valioso que agreguei mais intensamente recentemente, é em olhar aquilo de melhor mesmo em condições que são precárias de consistências. É praticar caridade hermenêutica.
@@ -19,7 +18,6 @@ Fico grata por lerem, é uma parte de minha mente explicada nesse texto, já que
 
 Gratidão,
 Sabrina.
-`
 
 ### assuntos
 
