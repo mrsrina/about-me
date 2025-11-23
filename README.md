@@ -19,6 +19,9 @@ Fico grata por lerem, é uma parte de minha mente explicada nesse texto, já que
 Gratidão,
 Sabrina.
 
-### assuntos
+## Paracosmo, sonho e sonos na minha vida
 
-`/* to be done */`
+Aqui você pode ler sobre meus sonhos, paracosmo, algo que sempre gostei de escrever sobre.  
+; [Clique aqui](./dreams/README.md)
+
+
