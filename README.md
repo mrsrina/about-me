@@ -1,0 +1,28 @@
+# sobre-mim
+
+```
+Recentemente entendi algumas partes minha internas; auto-conhecimento, paracosmo e a intuição que existe dentro de mim, junto as diversas coisas que já sofri. É muito importante escrever isso e colocar assim no tempo aqui no YouTube. Tem muitas coisas que as pessoas não entendem sobre o que é fazer acontecer, aquilo que moldamos e dissertamos então aplicamos. É uma coisa incomensuravel a mente, a alma, aquilo que é seu espírito superior e toda a áurea que consiste ao redor de nós.
+
+É uma coisa engraçada, muitas pessoas resumem a inteligência somente as questões céticas e materiais. Não há como deixar de críticar essas posições. Tem uma coisa muito linda na capacidade que pode existir em nós, e permite ir além, a presença pela busca em deduzir a estrutura que consiste outra estrutura, de praticar engenharia sobre modelos do conhecimento, de recuperar novamente a busca pela revelação de verdades sútils sobre conhecimentos da realidade. É bonito como necessariamente, a verdade nunca é criada, ela é revelada. Se o conhecimento surgisse de aqueles que ficam preso a dogmas coletivos, de autoridades por via da razão somente, então o mundo séria mais perturbador do que já é. Algo muito valioso que agreguei mais intensamente recentemente, é em olhar aquilo de melhor mesmo em condições que são precárias de consistências. É praticar caridade hermenêutica.
+
+Bom, o que tudo isso que escrevi tem pra vocês tirarem, é somente sobre irem por suas próprias motivações internas além do que outras pessoas iriam, não todos aqui vão fazer isso, alguns vão tecer obstáculos materiais e dogmas de ensino tradicional pela autoridade.
+
+Agora sobre mim, então surge minha mente, condições e noções desde pequena, dê mesmo quando adulta, não parei de desenvolver elas. Hoje, quando penso em tudo que já fiz, desde que programo até então agora em matemática, algo que estou incansavelmente estudando, notei uma coisa muito linda; é que todo os traumas que tive quando pequena, traumas que vou evitar de comentar, todos esses trumas, eu usei da mente, da cognição, da presença de analise e dedução em ordenar tudo que passei, seja em modelos que são meu paracosmo, até a vontade de produzir projetos que estavam muito acima da  capacidade minha, e em enfrentar anos por anos isso, em ir além de qualquer mera rasa criação, é a excepcionalidade. Tudo que passei sempre ordenei em sentidos que formavam modelos dentro de mim, sejam as realidades e regras que tangiam angústias reais e até me ferir fisicamente dentro do que coloquei nas regras; desde a motivação intrisica que me fazia determinada a desenvolver todo meu lado, que vocês presenciaram nas lives em meus projetos.
+
+É, não quero ser egoíca aqui, relevem, eu tenho medo de sempre parecer, mas é minha história, é minha mente, é tudo que transmutei em prática intelectual e engenharia. É isso. Isso ficará no tempo aqui no YouTube, um dia devo ler isso e me sentir envergonhada por falar algo tão relacionado ao meu eu pessoal.
+
+Algo importante, não me vejo racional a todo momento, e afirmo, tudo que eu digo nesse post, é profundamente interpretativo, porque não há racionalidade somente em minha vida. Re-afirmo, quanto mais racional as pessoas imaginam ser, mais elas se comprometem com possíveis contradições que podem, absolutamente desmonorrar toda sua crença sobre ser racional. Eu não sou racional nem lógica a todo momento, e também sei como o emocional, é intensamente importante, e que algumas coisas por mais irracionais; são as mais importantes para uma mente que conduza a racionalidade e comprometimento quando necessária.
+
+A rigorosidade racional a todo momento, é uma fantasia; é necessário um emocional intenso e sensível para então produzir com racionalidade algum objetivo. Isso é algo meu, é como percebo e por isso, não é necessário, eu ser racional o tempo todo, porque a racionalidade é usada em excelência quando necessária, por uma ordem emocional intensa que foi necessária para passar tudo que passou até usar de sua parte racional.
+
+Fico grata por lerem, é uma parte de minha mente explicada nesse texto, já que sobre o pavor que passei desde pequena até então, para hoje estar onde estou. E há muito mais, há muito mais.
+
+Agora, interpretem do modo em que possam obter algo, tenham um ótimo domingo.
+
+Gratidão,
+Sabrina.
+```
+
+### assuntos
+
+`/* to be done */`
