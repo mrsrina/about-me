@@ -24,4 +24,7 @@ Sabrina.
 Aqui você pode ler sobre meus sonhos, paracosmo, algo que sempre gostei de escrever sobre.  
 ; [Clique aqui](./dreams/README.md)
 
+## Filosofia
+
+; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)
 
