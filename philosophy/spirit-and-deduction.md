@@ -1,4 +1,4 @@
-# a Dedução e o Espírito 
+# à Dedução e o Espírito 
 
 ## Introdução 
 
@@ -12,7 +12,7 @@ O ensino tradicional regular dá valor ao número de uma prova, a quantidade de 
 
 ## Dedução
 
-Ao longo que cresci, tive que impor limites ao gasto de energia entre o valor do coletivo social e ao conhecimento. São duas coisas que se corelacionam, embora, o conhecimento não depende da sociedade, por que ele nasce de qualquer individuo não socializado ou socializado.
+Ao longo que cresci, tive que impor limites ao gasto de energia entre o valor do coletivo social e ao conhecimento. São duas coisas que se correlacionam, embora, o conhecimento não depende da sociedade, por que ele nasce de qualquer individuo não socializado ou socializado.
 
 A Dedução é o esforço que a mente faz ao tentar traçar um meio para um fim satisfatório. Fique claro, ele é um processo desordenado pela contradição, e que quanto mais ele se desenvolve, mais ele resolve as contradições.
 
@@ -34,13 +34,13 @@ Atribui um estado ao Espírito, que define as ações e comprometimentos que a A
 
 As contribuições sobre o perispírito, as contribuições metafísicas da Alma, todas em ontologias contudentes distinguidas em tradições que se espalham, apontam ao mesmo fenômeno, com suas diferentes perspectivas de ordem moral.
 
-Todas elas participam do mesmo trabalho da metafisica, as que são válidas, são reconhecidas pela excelência em trabalhar com os transcendentes universais. O critério epsitemico da honestidade, que permite a metaetica de virtude, que contribui a todas as outras faculdades do conhecimento, em uma harmônia geométrica de ordem sagrada.
+Todas elas participam do mesmo trabalho da metafisica, as que são válidas, são reconhecidas pela excelência em trabalhar com os transcendentes universais. O critério epsitemico da honestidade, que permite a metaética de virtude, que contribui a todas as outras faculdades do conhecimento, em uma harmônia geométrica de ordem sagrada.
 
-Agora, existe um meio entre o realismo e o idealismo, cito o Attualismo de Giovani Gentile; o autor da definição do Espírito Fascista, venho a citar ele, pois muitos autores tentaram sobrescrever o Espírito ao longo do tempo, e que muitas pessoas caíram e que ainda caem em seus arranjos impossíveis. No Attualismo, a realidade reside somente pensamento, após o ato puro do pensamento, e por tanto, de forma radical e espiritual nega o realismo objetivo da realidade, o realismo ontológico permite a matemática elementar e seus axiomas de Peano terem resoluções que são profundas e metafísicas, as mesmas, que o idealismo Attualista a rejeita, mesmo, tentando se expressar com a metafísica.
+Agora, existe um meio entre o realismo e o idealismo, cito o Attualismo de Giovani Gentile; o autor da definição do Espírito Fascista, venho a citar ele, pois muitos autores tentaram sobrescrever o Espírito ao longo do tempo, e que muitas pessoas caíram e que ainda caem em seus arranjos impossíveis. No Attualismo, a realidade reside somente no pensamento, após o ato puro do pensamento, e por tanto, de forma radical e espiritual nega o realismo objetivo da realidade, o realismo ontológico permite a matemática elementar e seus axiomas de Peano terem resoluções que são profundas e metafísicas, as mesmas, que o idealismo Attualista a rejeita, mesmo, tentando se expressar com a metafísica.
 
 A de ficar claro, não só o Attualismo, mas as categorias não fixas da dialética-historica, além de a dialética-historica negar a metafísica, a mesma que da rigor aos axiomas elementares da Matemática, ela rejeita o critério epsitemico da honestidade, que por consequência idealista, rejeita outras faculdades da ciência, da natureza e do divino.
 
-A virtude da honestidade, uma metaética universal, necessária para todo conhecimento objetivo, para todo conhecimento verdadeiro, ela é indispensável; sem honestidade não há metaetica, sem honestidade não há matemática, sem honestidade não há lógica, sem honestidade não há conhecimento.
+A virtude da honestidade, uma metaética universal, necessária para todo conhecimento objetivo, para todo conhecimento verdadeiro, ela é indispensável; sem honestidade não há metaética, sem honestidade não há matemática, sem honestidade não há lógica, sem honestidade não há conhecimento.
 
 ## A Dedução e o Espírito
 
