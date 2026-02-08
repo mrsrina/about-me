@@ -26,5 +26,5 @@ Aqui você pode ler sobre meus sonhos, paracosmo, algo que sempre gostei de escr
 
 ## Filosofia
 
-; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)
+; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)  
 ; [a Metaética do Suicídio](./philosophy/the-metaethics-of-suicide.md)
