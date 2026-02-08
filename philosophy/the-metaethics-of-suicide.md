@@ -72,7 +72,9 @@ Não há direito de suicídio, não é correto, e por tanto, é somente uma atit
 
 Ao concluir, o suicídio não é um direito, é uma maldade, e tal sofrimento, não devemos cometer tal maldades contra nós mesmos em este sentido de encerar a própria liberdade, em uma eternidade que virá a divida ser paga, em Espírito, ou em próxima vida ou em salvação. 
 
-### Notas Pessoais
+---
+
+## Notas Pessoais
 
 Sim, assim já tive momentos de glória e momentos que me fizeram quase cometer esta maldade comigo mesma, contudo, o amor de Cristo e o aprendizado que tive, junto a alguém qual nunca esquecerei, me fez tomar responsabilidade em elevar a excelência destas faculdades mal compreendidas que assim estudo. Obrigada por ler, gratidão.
 
