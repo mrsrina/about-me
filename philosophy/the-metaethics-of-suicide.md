@@ -30,7 +30,7 @@ Entre qualquer sociedade, qualquer parte deste universo que há uma forma inteli
 
 Assim, toda a matemática e lógica só é capaz de ter sido desenvolvida, porque a questão da não-contradição foi elevada em seu trabalho dedutivo e intuitivo por excelência. E estás foram desenvolvidas indiretamente pela virtude da honestidade que é objetivamente inevitável. Assim, o critério epistêmico supõe honestidade intelectual, que é a mesma tal, a dedução necessita. É um universal axiomático no sentido epistêmico e de aceitar a existência da não-contradição.
 
-### Relativismo de Valores e de Metaética da Moral
+### Relativismo
 
 A neblina de sustentar de forma íntima o relativismo tanto radical ou não-radical, está sobre pensar em sentido ontológico metaético. Há entre os relativistas morais uma parte que vê um critério de operador para diferenciar o estado de Espírito superior e inferior. Estes, ainda que creem minimamente em um objetivismo de valor, tentam demonstrar que há ao menos duas formas: a incompatibilidade e a racionalismo.
 
