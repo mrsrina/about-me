@@ -44,7 +44,7 @@ Hoje em dia, com toda gratidão a Deus, pude por melhorar ainda mais sobre todas
 
 ## o Sofrimento
 
-Em conclusão, a tudo que disse, sempre tive este apego ao sofrimento. Desde pequena, ao que sofri, transmutei em energia para meu Espírito, para meu corpo, mesmo que em jejum, em sabotagem de forças, mesmo em depressão profunda. Mesmo com pouco tempo, mesmo com nada além de pouco hardware antigo.
+Em conclusão, a tudo que disse, sempre tive este apego ao sofrimento. Desde pequena, ao que sofri, transmutei em energia para meu Espírito, para meu corpo, mesmo que em jejum, em sabotagem de forças, mesmo em depressão profunda, mesmo com pouco tempo, mesmo com nada além de hardware antigo.
 
 Nunca recuse estudar por sofrer na sua condição atual, nunca faça isso, pois assim, você espera que vá tudo melhorar. E no fim, as coisas não melhoram do nada, elas devem de determinação de você fazer acontecer.
 
