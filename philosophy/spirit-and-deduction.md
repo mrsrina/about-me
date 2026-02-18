@@ -40,7 +40,7 @@ Ao longo que cresci, acabei por desenvolver uma incondicionalidade ao estudo por
 
 A todo que eu passava, as restrições, as privações, e o sentimento de angústia causado por um personagem autoritário possesivo. Notei que o conhecimento, este, ninguém me tirava. Pois ele independe de ler de toda fonte, ele nasce por dedução. Claro, neste tempo eu não tinha tanto conhecimento quanto hoje, tudo que pude aprender, foi em desenvolver este meu lado dedutivo por a prática na programação e por fim em respeito de fazer do melhor jeito possível mesmo sem deter diversas noções de conhecimentos que satisfaça este nível de prática.
 
-Hoje em dia, com toda gratidão a Deus, pude por melhorar ainda mais sobre todos as condições que possam aparecer.
+Hoje em dia, com toda gratidão a Deus, pude por melhorar ainda mais sobre todas as condições que possam manisfestar.
 
 ## o Sofrimento
 
