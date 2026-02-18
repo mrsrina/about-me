@@ -26,5 +26,7 @@ Aqui você pode ler sobre meus sonhos, paracosmo, algo que sempre gostei de escr
 
 ## Filosofia
 
+Aqui, comumente, em meus estudos, gosto de escrever sobre coisas que ficam dentro de minha mente, e espero caridade de quem leia estas, pois são meros ensaios sem absoluta responsabilidade. 
+
 ; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)  
 ; [a Metaética do Suicídio](./philosophy/the-metaethics-of-suicide.md)

@@ -1,61 +1,54 @@
-# à Dedução e o Espírito 
+# Espírito e Dedução
 
-## Introdução 
+## Introdução
 
-Ao longo que cresci sozinha na adolescência e infância, desenvolvi a determinação por meio dá insegurança de minha capacidade intelectual. Essa incapacidade de ser profunda gerava situações de desconforto e desvalorização de minha honra, mesmo, quando uma criança, mesmo quando uma adolescente.
+É brevemente um ensaio sobre um pensamento que tenho, como a nossa capacidade de dedução está diretamente envolvida a nosso Espírito. E que em condição humana mesmo em sofrimento devemos a desenvolver, sobre todas as condições injustas. Está a chamo de determinação.
 
-Normalmente, deve pensar que é comum uma criança ter esse senso, só que, fica evidente agora na vida adulta, que foi algo isolado naquela situação minha.
+É um curto texto, de somente escrever o que tanto guardo, e que em gratidão a Deus, consigo atualmente escrever sem ser diminuida, privada, onde toda a dor que passei, floresce neste exato momento que agora escrevo.
 
-Aos colegas que conseguiam por meio do ensino tradicional regular, demonstrar seu valor ao coletivo social. Estava lá a Sabrina, oriunda de um profundo desespero e sofrimento interno, de uma família que a machucava, que a privava, que minava o resquício de desenvolver determinação ao mundo social coletivo.
+## Espírito e Dedução
 
-O ensino tradicional regular dá valor ao número de uma prova, a quantidade de informações, a quantidade de esforço ao seu sistema rigoroso formal. E lá, estava, Sabrina.
+### Espírito
 
-## Dedução
+O Espírito é o princípio da inteligência. Diz isto, porque a consciência és de causa do Espírito, só há causa de consciência sobre todo aquele que tem em princípio a inteligência, logo, todo aquele que há Espírito.
 
-Ao longo que cresci, tive que impor limites ao gasto de energia entre o valor do coletivo social e ao conhecimento. São duas coisas que se correlacionam, embora, o conhecimento não depende da sociedade, por que ele nasce de qualquer individuo não socializado ou socializado.
+A alma-humana é em substância: o corpo-carnal unido ao Espírito por um sistema energético. Está é a alma-humana, onde o Espírito está instanciado no corpo-material por um sistema energético.
 
-A Dedução é o esforço que a mente faz ao tentar traçar um meio para um fim satisfatório. Fique claro, ele é um processo desordenado pela contradição, e que quanto mais ele se desenvolve, mais ele resolve as contradições.
+O sistema energético é quem a liga, não basta somente dar inteligência a matéria, deva haver um meio entre que faça está ligação, pois nada está conectado a outro sem que haja um motivo. O motivo, o que permite tal conexcão é o Perispiríto.
 
-Quando pequena, pensava que a escola, o ensino tradicional teria um papel exemplar a capacidade de dedução, porém, ao progredir de ano letivo, mais ela se deteriorava. A escola e seu ensino, depreciavam o conhecimento, e por consequência, impedia o processo de dedução devido ao curto tempo entre cada um assunto, isso inclui, ao medo de reprovar.
+### Dedução
 
-É doloroso o sofrimento que o tempo causa quando lhe pressiona, algumas pessoas não conseguem lidar com isso, e partem a outras faculdades da vida, está é uma das soluções que recomendo.
+Onde o Espírito esteja instanciado, há em ele, a sua capacidade da dedução. Nem todos os animais são racionais em sentido de sua consciência adquirir compreensão profunda do ser, ou seja, de elevar em excelência a dedução. Um gato tem Espírito, assim como um cachorro tem, contudo, há formas coletivas de Espírito, tal como os insetos. Insetos detém de um unico Espiríto que compartilham entre seus semelhantes.
 
-A de Sabrina, foi a troca entre os pesos, pelo conhecimento, ao invés do ensino tradicional e o coletivo social.
+Agora, assim, digamos que o que diz ser a dedução, meramente a consciência das contradições que conflitam com as propostas que está em argumento. Todo que é consciênte em qualquer grau, pode-se usar a dedução, assim, como um passáro consegue decidir quantas minhocas deve se caçar para dar aos seus filhotes. 
 
-Assim, ao estudar aquilo que me fazia esquecer dos males das privações de felicidade de uma criança e adolescente. Pude pela primeira vez iniciar o desenvolvimento de minha capacidade deducional e de obter conhecimento sem que isto fosse removido de mim, em resumo, o controle possesivo e tortura que sofria, além de me fazer mal em ordem emocional também roubava a minha energia usada para a escola e o coletivo social.
+Em todo corpo-humano que compõe a alma-humana, existe em contigência ao que diz, em potência, a racionalidade, pois isto é o que causa o homem ter em excelência a dedução. Sim, ademais animais não são racionais, tal como um gato, porém, ele é consciênte e consegue usar de dedução, entre-tanto, não em excelência.
 
-Não é uma escolha de eficiência, e sim, de respeito a mim como pessoa, de legítimo belo divino direito da capacidade do Espírito se desenvolver para um estado de consciência e determinação.
+Temos este termo aqui claro, vamos explorar o que é. A dedução nada mais é que consciência de contradições, e que por um meio qualquer, resolva esta contradiç
+ão. Ele é uma habilidade inata a todos que detém consciência. O humano se destaca por sua condição racional em potência, que esta trabalha em argumentos coerentes com a realidade a um nível de uso complexo da linguagem e da intuição.
 
-## Espírito
+### Objeções
 
-A ontologia do Espírito em sentido estrito Kardecista ou a de Alma-humana que tem como estrutura o Espírito e o Corpo Material. O Espírito é um fenômeno, ao citar Kardec, digo que este sentido estrito percorre aos postulados de sua obra que recorrem a definir também enquanto vivo, a alma humana pelo perispírito. As contribuições de praticantes da doutrina Católica, e as de outros que buscam a verdade para se aproximar de Deus. Tudo isso, demonstra como esse fenômeno existe em diferentes tradições.
+Tome cuidado com aqueles que tentam por reescrever o Espírito sem concordância metafísica com a realidade, digo isto, mesmo estando nessa possibilidade. Muitos tentaram a sobrescrever o que é o Espírito, muitos usam sem cuidados rigorosos, venho a citar Giovanni Gentile, que em sua filosofia chamada de Attualismo, a define o Espírito e a própia realidade em um idealismo absoluto, onde a realidade, meramente reside no ato puro do pensamento. Devemos tomar cuidado com aqueles que rejeitam universais, que rejeitam argumentos contundêntes, eu mesma, estou neste mesmo filtro de cuidado.
 
-Atribui um estado ao Espírito, que define as ações e comprometimentos que a Alma produz.
+Por isso, seja a você quem desenvolva a dedução e tome cuidado com o que não há rigor. Muitos reduzem a "mera" materialidade idealista outros reduzem a "mera" absolutismo idealista.
 
-As contribuições sobre o perispírito, as contribuições metafísicas da Alma, todas em ontologias contudentes distinguidas em tradições que se espalham, apontam ao mesmo fenômeno, com suas diferentes perspectivas de ordem moral.
+E outros negam sua própia existência por consentimento ideológico. Trágico.
 
-Todas elas participam do mesmo trabalho da metafisica, as que são válidas, são reconhecidas pela excelência em trabalhar com os transcendentes universais. O critério epsitêmico da honestidade, que permite a metaética de virtude, que contribui a todas as outras faculdades do conhecimento, em uma harmônia geométrica de ordem sagrada. Está harmônia é uma representação geométrica, onde para cada aresta, para cada vértice, há uma condição que é satisfeita, que resulta em uma medida perfeita, em o todo, em o todo da forma geométrica, se projeta uma forma geométrica sagrada. É difícil pensar nisto sem ao menos desenhar, porém, imagine que para qualquer forma geométrica é necessário uma medida alinhada, que satisfaz outras condições coêrentemente. Uma destas condições para a geometria que representa todo essa geometria sagrada, é a metaética da honestidade.
+## a Determinação
 
-Agora, existe um meio entre o realismo e o idealismo, cito o Attualismo de Giovani Gentile; o autor da definição do Espírito Fascista, venho a citar ele, pois muitos autores tentaram sobrescrever o Espírito ao longo do tempo, e que muitas pessoas caíram e que ainda caem em seus arranjos impossíveis. No Attualismo, a realidade reside somente no pensamento, após o ato puro do pensamento, e por tanto, de forma radical e espiritual nega o realismo objetivo da realidade, o realismo ontológico permite a matemática elementar e seus axiomas de Peano terem resoluções que são profundas e metafísicas, as mesmas, que o idealismo Attualista a rejeita, mesmo, tentando se expressar com a metafísica.
+Ao longo que cresci, acabei por desenvolver uma incondicionalidade ao estudo por conta própia. Sinto que esse espaço possa abraçar o que quero dizer. Desde pequena, aos meus 13 anos, comecei por praticar com todo cuidado possível mesmo em saber tão pouco. Tive que decidir entre usar da energia que restava para a escola e status social ou a de meu íntimo interesse em o que tanto amo - computação, matemática e física -.
 
-A de ficar claro, não só o Attualismo, mas as categorias não fixas da dialética-historica, além de a dialética-historica negar a metafísica, a mesma que da rigor aos axiomas elementares da Matemática, ela rejeita o critério epsitêmico da honestidade, que por consequência idealista, rejeita outras faculdades da ciência, da natureza e do divino.
+A todo que eu passava, as restrições, as privações, e o sentimento de angústia causado por um personagem autoritário possesivo. Notei que o conhecimento, este, ninguém me tirava. Pois ele independe de ler de toda fonte, ele nasce por dedução. Claro, neste tempo eu não tinha tanto conhecimento quanto hoje, tudo que pude aprender, foi em desenvolver este meu lado dedutivo por a prática na programação e por fim em respeito de fazer do melhor jeito possível mesmo sem deter diversas noções de conhecimentos que satisfaça este nível de prática.
 
-A virtude da honestidade, uma metaética universal, necessária para todo conhecimento objetivo, para todo conhecimento verdadeiro, ela é indispensável; sem honestidade não há metaética, sem honestidade não há matemática, sem honestidade não há lógica, sem honestidade não há conhecimento.
+Hoje em dia, com toda gratidão a Deus, pude por melhorar ainda mais sobre todos as condições que possam aparecer.
 
-## A Dedução e o Espírito
+## o Sofrimento
 
-Agora, com tudo esclarecido, aqui está a pequena Sabrina, em estado de espírito, provendo determinação ao seu Espírito, de deslumbrar o conhecimento, mesmo em sofrimento.
+Em conclusão, a tudo que disse, sempre tive este apego ao sofrimento. Desde pequena, ao que sofri, transmutei em energia para meu Espírito, para meu corpo, mesmo que em jejum, em sabotagem de forças, mesmo em depressão profunda. Mesmo com pouco tempo, mesmo com nada além de pouco hardware antigo.
 
-O Espírito e seu estado, deve também daqueles invocados ao redor de ti, do pacto com Deus, do amor e de gratidão a Jesus.
+Nunca recuse estudar por sofrer na sua condição atual, nunca faça isso, pois assim, você espera que vá tudo melhorar. E no fim, as coisas não melhoram do nada, elas devem de determinação de você fazer acontecer.
 
-Não somente a auto-determinação causal pelo Espírito que deslumbra a força quando tem consciência de todos os sentidos, mas a de se lembrar, que alguém, em um estado superior de espírito, lhe provê aprendizado por sua conexão profunda, que espera somente gratidão e honestidade.
+Há aqueles que dizem, que gostariam de estudar sem sofrer, que só fariam isto, e que murmuram sobre isso. Trágico.
 
-Para toda compreensão de conhecimento é necessário uma capacidade dedutiva excelente, e nele, somente nele, reside algo que a difere de quem tem informação. É a de andar sobre os males da subjetividade radical nomialista, que se responsabiliza as consequências do que é afirmado. E para desenvolver esta dedução, demanda o esforço pela determinação em excelência, que só existe, ao seu Espírito, se estar em um estado que satisfaça a ordem do seu universo interno, para produzir com maestria novos conhecimentos e postulados sobre obras excelentes de outros autores.
-
-A dedução representa o reconhecer de estar errado, de estar em contradição, e a busca para satisfazer uma condição sem se sujeitar a males idealista como a subjetividade e ao misticismo.
-
-Infelizmente, nem todas as pessoas estão dispostas a reconhecer seu erro, reconhecer suas contradições epsitemicas, em reconhecer seus profundos problemas internos. Algo de esclarecer, a questão importante é que nem tudo que é contradição aparente é de fato uma, pois existe uma ordem anterior, que não implica nela. O fenômeno não se contradiz na realidade, a verdade não se contradiz, o humano falho, aprende pela dedução e desenvolvimento de seu estado de espírito, por meio das virtudes, do amor e da compaixão pelo próximo em caridade, em sintonia com Jesus e Deus.
-
-## Sabrina W.
-
-Eu luto para reconhecer os males dentro de mim, luto com Jesus, luto com a persistência de superar meus erros e de responsabilizar eles, de aceitar fielmente que estou errada. Obrigada.
+# Sabrina Wilk em 2026-02-18 18:00:13
