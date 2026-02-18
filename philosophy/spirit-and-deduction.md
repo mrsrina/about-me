@@ -50,4 +50,6 @@ Nunca recuse estudar por sofrer na sua condição atual, nunca faça isso, pois 
 
 Há aqueles que dizem, que gostariam de estudar sem sofrer, que só fariam isto, e que murmuram sobre isso. Trágico.
 
-# Sabrina Wilk em 2026-02-18 18:00:13
+---
+
+#### Sabrina Wilk em 2026-02-18 18:00:13
