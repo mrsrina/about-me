@@ -24,7 +24,7 @@ Agora, assim, digamos que o que diz ser a dedução, meramente a consciência da
 
 Em todo corpo-humano que compõe a alma-humana, existe em contigência ao que diz, em potência, a racionalidade, pois isto é o que causa o homem ter em excelência a dedução. Sim, ademais animais não são racionais, tal como um gato, porém, ele é consciênte e consegue usar de dedução, entre-tanto, não em excelência.
 
-Temos este termo aqui claro, vamos explorar o que é. A dedução nada mais é que consciência de contradições, e que por um meio qualquer, resolva esta contradição. Ele é uma habilidade inata a todos que detém consciência. O humano se destaca por sua condição racional em potência, que esta trabalha em argumentos coerentes com a realidade a um nível de uso complexo da linguagem e da intuição.
+Temos este termo aqui claro, vamos explorar o que é. A dedução nada mais é que consciência de contradições, e que por um meio, resolva esta contradição. Ele é uma habilidade inata a todos que detém consciência. O humano se destaca por sua condição racional em potência, que esta trabalha em argumentos coerentes com a realidade a um nível de uso complexo da linguagem e da intuição.
 
 ### Objeções
 
