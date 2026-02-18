@@ -1,4 +1,4 @@
-# sobre-mim
+# Sobre Mim
 
 Este é um lugar que quero guardar os pensamentos e ensaios que tenho sobre a vida, uma vez que, mesmo que isso pudesse ser íntimo, temo por a Sabrina do futuro, onde ela, ora ou outra, terá que confrontar em argumentos toda vez que colocar pra fora aquilo que mais há nela.
 
@@ -13,7 +13,7 @@ Aqui, em meus estudos, gosto de escrever sobre coisas que ficam dentro de minha 
 ; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)  
 ; [a Metaética do Suicídio](./philosophy/the-metaethics-of-suicide.md)
 
-## Paracosmo, sonho e sonos na minha vida
+## Sonhos, Paracosmos e Particularidades
 
 Aqui você pode ler sobre meus sonhos, paracosmo, algo que sempre gostei de escrever sobre.  
 ; [Clique aqui](./dreams/README.md)
