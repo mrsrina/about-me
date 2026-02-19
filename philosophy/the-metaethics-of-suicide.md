@@ -4,9 +4,13 @@
 
 É um breve ensaio de como sustento o contra argumento ao guarda-chuva relativista. Explico brevemente como mesmo os não radicais que usam da incompatibilidade e os racionais (utilitarismo por soma de prazeres), cito, como tanto ambas se implodem, aos incompatibilistas, negam a responsabilidade ontológica de como usam os principios que defendem para dar critério de inferiordade e superiordade; já aos racionalistas por não seguir o rigor ontológico da noção de soma (aritmética) de prazer, também quanto a inconsistência do que é prazer.
 
-Explico como utilitaristas podem usar a desonestidade no momento que isto ser em bem maior, ademais como a há a desonestidade que os incompatibilistas rejeitam (se há inferior e superior por critério de princípios, então não devem negar o princípio mais básico do ser, e nesse caso, fazem, pois se omitem a responder meta-éticamente o julgamento de outros valores). 
+Explico como utilitaristas podem usar a desonestidade no momento que isto ser em bem maior, ademais como a há a desonestidade que os incompatibilistas rejeitam (se há inferior e superior por critério de princípios, então não devem negar o princípio mais básico do ser, e nesse caso, fazem, pois se omitem a responder meta-éticamente o julgamento de outros valores).
 
-Ao final, após, explico em campos espirituais, está fica a de cargo quem gostaria de ler.
+Após adentrar no Drama-Humano, uma expressão que cunho com uma definição estrita aqui particular, explico brevemente como utilitaristas vem justificados nessa noção de drama-humano, embora, a mesma incoêrencia lógica que atestam (que implode todo seu sistema relativista) já a impedem de decidir em sentido de direito (se é meta-ético correto sustentável sem violar arbitráriamente a não-contradição).
+
+Próximo ao fim, incluo a Ética Hoppeana e a responsabilidade ontológica da causa primária, que impede caso vier a ser um realista Hoppeano, sem cair em absolutismo (posição que nega a natureza divina que precede outros sistemas que argumentam sobre paranormalidades tal como milagres, aparições, fenômenos espirituais etc; todos estes são fenômenos reais contestados e estudados). Também incluo uma demonstração da negação performática da existência que permite escolha futura, em cessar a si mesmo é uma contradição dentro do Hoppeanismo ao negar a escolha futura, está não depende da causa primária em sentido de demonstração.
+
+Ao final, após, explico em campos espirituais. Está já fica cargo de quem gostaria de ler. É uma parte estritamente para quem quiser avançar em noções mais espirituais, e que recomendo meu outro ensaio - [Espírito e Dedução](./spirit-and-deduction.md).
 
 ## Ética
 
