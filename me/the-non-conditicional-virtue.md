@@ -36,9 +36,9 @@ Bom, é uma conclusão simples.
 
 Agora, lembra ao que disse, sobre estas virtudes que nos alinhamos ao longo da vida, em escolher o bem e não adentrar ao mal.
 
-Isto tudo, como dito, é um desabafo. As vezes, sofro assim como outras pessoas também sofrem, se sentir injustiçada, diminuída, humilhada e em consequência oprimida. Não oprimida pelo correto, pela verdade, mas pela maldade, ou seja, a negação da verdade. Você já deve ter conversado com alguém que ri, que zomba, que se alcooliza de sarcasmos e ironia. Nota, eu não vejo problema em gostar, pois meu ponto é outro, quando és de comprometimento com a verdade, com algo que está em razão, por virtude. Essas atitudes o impedem de ser contundênte, pois zomba daquele que está escrevendo em mais pura linguagem.
+Isto tudo, como dito, é um desabafo. As vezes, sofro assim como outras pessoas também sofrem, se sentir injustiçada, diminuída, humilhada e em consequência oprimida. Não oprimida pelo correto, pela verdade, mas pela maldade, ou seja, a negação da verdade. Você já deve ter conversado com alguém que ri, que zomba, que se alcooliza de sarcasmos e ironia. Nota, eu não vejo problema em gostar, pois meu ponto é outro, quando és de comprometimento com a verdade, com algo que está em razão, por virtude. Essas atitudes o impedem de ser contundente, pois zomba daquele que está escrevendo em mais pura linguagem.
 
-É também uma atitude reflexo de subestimar o outro. Fiz uma pergunta uma vez a uma bolha, em major, de algumas pessoas que a vêem o mundo em nomialismo, que não há essência, nem entes nem nada de tom realista metafísico, enfim. A pergunta foi, se em debate é uma atitude saudável e digna o sarcasmo e a ironia. E que, infelizmente, fui respondida com a resposta sim.
+É também uma atitude reflexo de subestimar o outro. Fiz uma pergunta uma vez a uma bolha, em major, de algumas pessoas que a olham o mundo em nominalismo, que não há essência, nem entes nem nada de tom realista metafísico, enfim. A pergunta foi, se em debate é uma atitude saudável e digna o sarcasmo e a ironia. E que, infelizmente, fui respondida com a resposta sim.
 
 Bom, está tudo bem, é que, como tudo isso se correlaciona por exemplo com tudo que estou querendo dizer...?
 
@@ -52,9 +52,9 @@ Continuando tudo que quero dizer, quando vejo essas pessoas quais estão perdida
 
 Peço caridade de quem leia, pois noto profunda falta de orientação daqueles que decaem sem salvação do seu estado atual. A gratidão é a prática que nos faz mover, mesmo, sem nem ao menos verbalizar ela.
 
-Quando alguém vier dizer a ti que, é preciso estudar, ter boas notas, ter qualquer coisa antes de ser aquilo que deseja, toma cuidado com isso, pois, olha é algo que nunca fez sentido na minha vida e nem faz falta. Basta em determinação de seu Espírito, começar, sem depender de nenhuma instituição, de nenhuma pessoa além de sua propia força e a de quem ama a ti. A Cristo, aos seus país, a quem está ao seu lado incondicionalmente. Sim, há em excessões, quando um filho deve trabalhar para cuidar de sua mãe doente, estes, tem em seu coração outras motivações, e mesmo que é sofrido, é belo, pois o amor, a incondicionalidade a virtude, o fará mais feliz que poderia pensar, que Deus de forças a estes. Enfim.
+Quando alguém vier dizer a ti que, é preciso estudar, ter boas notas, ter qualquer coisa antes de ser aquilo que deseja, toma cuidado com isso, pois, olha é algo que nunca fez sentido na minha vida e nem faz falta. Basta em determinação de seu Espírito, começar, sem depender de nenhuma instituição, de nenhuma pessoa além de sua propiá força e a de quem ama a ti. A Cristo, aos seus país, a quem está ao seu lado incondicionalmente. Sim, há em exceções, quando um filho deve trabalhar para cuidar de sua mãe doente, estes, tem em seu coração outras motivações, e mesmo que é sofrido, é belo, pois o amor, a incondicionalidade a virtude, o fará mais feliz que poderia pensar, que Deus de forças a estes. Enfim.
 
-Dizer isto hoje em dia, é as vezes olhado com mals olhos por alguns. Mas não importa no fim, em nossa realidade.
+Dizer isto hoje em dia, é as vezes olhado com maus olhos por alguns. Mas não importa no fim, em nossa realidade.
 
 Assim como a maldade existe, não a faz a bondade ser maldade, nem, ao errado, o correto ser errado. Há o objetivo, há o transcendental, há o belo em o sofrimento.
 
