@@ -62,4 +62,4 @@ Não há como evoluir, ou seja, se educar enquanto cresce, sem confiança em si 
 
 Eu sofri muito na juventude, tenho meus problemas hoje em dia em decorrer de estímulos físicos, da hipervigilância, da ansiedade, da violência, da privação. E mesmo assim, orientada com mente aberta, a busca em algo que desde pequena, já havia entendido, já havia compreendido, e que hoje, graças a Deus, graças aos meus pais, graças a determinação, pude escrever aqui.
 
-Obrigada por ouvir, tenha um ótimo dia.
+Obrigada por ler, tenha um ótimo dia.
