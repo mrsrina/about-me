@@ -18,7 +18,7 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 5- Ninguém é deus por escrever um software, pois o principio da forma não foi criado por nós, apenas, criamos nossos modos particulares (essência) quando atualizamos a sua Alma.
 
-6- Quem conseguem atualizar com seus modos particulares a Alma deste software, é um programador, e não um criador.
+6- Quem é capaz de atualizar por seus modos particulares a Alma deste software, é um programador, e não um divino criador.
 
 ## Questões
 
