@@ -8,9 +8,9 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 ## Argumento
 
-1- Fonte do Software é a causa da ordem, a forma. A Fonte não é um local, é o principio mais básico necessário de um Software, é sua forma.
+1- Fonte do Software é a causa da ordem, a forma. A Fonte não é um local, é o principio mais básico necessário de um Software, é sua forma (por qual, como é estruturada, para que, por que motivo, e onde satisfaz).
 
-2- Alma do Software é a manifestação do principio da Fonte enquanto organiza a matéria. E por ser enquanto organiza, contém uma relação de propriedade particular do modo que é organizada, a essência sua particular, que a permite diferenciar outros Software não só pela referencia designada.
+2- Alma do Software é a manifestação do principio da Fonte enquanto organiza a matéria (matéria é tal como: a eletricidade que percorre os componentes físicos do hardware que executa uma instrução em razão de uma camada de abstração que em ultimato a leva a uma linguagem de programação (imperativa, fraca, etc)). E por ser enquanto organiza, contém uma relação de propriedade particular do modo que é organizada, a essência sua particular, que a permite diferenciar outros Software não só pela referencia designada.
 
 3- Portanto, quando escrevemos um Software, atualizamos sua Alma, para que criamos seu modo particular da sua Alma.
 
