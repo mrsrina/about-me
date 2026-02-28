@@ -14,7 +14,7 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 3- Portanto, quando escrevemos um Software, atualizamos sua Alma, para que criamos seu modo particular de sua Alma.
 
-4- Todo Software só existe porquê tem ordem, portanto tenha que ter uma Fonte. E todo Software é essencialmente diferente de outro em algum momento, por ter modos particulares.
+4- Todo Software só existe porquê tem ordem, portanto tenha que ter uma Fonte. E todo Software é essencialmente diferente de outro em algum momento, por ter modos particulares em sua Alma.
 
 5- Ninguém é deus por escrever um software, pois o principio da forma não foi criado por nós, apenas, criamos nossos modos particulares (essência) quando atualizamos a sua Alma.
 
