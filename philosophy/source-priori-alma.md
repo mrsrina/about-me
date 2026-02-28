@@ -12,7 +12,7 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 2- Alma do Software é a manifestação do principio da Fonte enquanto organiza a matéria (matéria é tal como: a eletricidade que percorre os componentes físicos do hardware que executa uma instrução em razão de uma camada de abstração que em ultimato a leva a uma linguagem de programação (imperativa, fraca, etc)). E por ser enquanto organiza, contém uma relação de propriedade particular do modo que é organizada, a essência sua particular, que a permite diferenciar outros Software não só pela referencia designada.
 
-3- Portanto, quando escrevemos um Software, atualizamos sua Alma, para que criamos seu modo particular da sua Alma.
+3- Portanto, quando escrevemos um Software, atualizamos sua Alma, para que criamos seu modo particular de sua Alma.
 
 4- Todo Software só existe porquê tem ordem, portanto tenha que ter uma Fonte. E todo Software é essencialmente diferente de outro em algum momento, por ter modos particulares.
 
