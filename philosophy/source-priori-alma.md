@@ -8,13 +8,13 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 ## Argumento
 
-1- Fonte do Software é a causa da ordem, a forma. A Fonte não é um local, é o principio mais básico necessário de um Software, é sua forma (por qual, como é estruturada, para que, por que motivo, e onde satisfaz).
+1- Fonte do software é a causa da ordem, a forma. A Fonte não é um local, é o principio mais básico necessário de um software, é sua forma (por qual, como é estruturada, para que, por que motivo, e onde satisfaz).
 
-2- Alma do Software é a manifestação do principio da Fonte enquanto organiza a matéria (matéria é tal como: a eletricidade que percorre os componentes físicos do hardware que executa uma instrução em razão de uma camada de abstração que em ultimato a leva a uma linguagem de programação (imperativa, fraca, etc)). E por ser enquanto organiza, contém uma relação de propriedade particular do modo que é organizada, a essência sua particular, que a permite diferenciar outros Software não só pela referencia designada.
+2- Alma do software é a manifestação do principio da Fonte enquanto organiza a matéria (matéria é tal como: a eletricidade que percorre os componentes físicos do hardware que executa uma instrução em razão de uma camada de abstração que em ultimato a leva a uma linguagem de programação (imperativa, fraca, etc)). E por ser enquanto organiza, contém uma relação de propriedade particular do modo que é organizada, a essência sua particular, que a permite diferenciar outros software não só pela referencia designada.
 
-3- Portanto, quando escrevemos um Software, atualizamos sua Alma, para que criamos seu modo particular de sua Alma.
+3- Portanto, quando escrevemos um software, atualizamos sua Alma, para que criamos seu modo particular de sua Alma.
 
-4- Todo Software só existe porquê tem ordem, portanto tenha que ter uma Fonte. E todo Software é essencialmente diferente de outro em algum momento, por ter modos particulares em sua Alma.
+4- Todo software só existe porquê tem ordem, portanto tenha que ter uma Fonte. E todo software é essencialmente diferente de outro em algum momento, por ter modos particulares em sua Alma.
 
 5- Ninguém é deus por escrever um software, pois o principio da forma não foi criado por nós, apenas, criamos nossos modos particulares (essência) quando atualizamos a sua Alma.
 
@@ -24,13 +24,13 @@ Brevemente aqui, explico o argumento, descrevo demonstrações e por fim, conclu
 
 ### Fonte, Priori, e Alma
 
-Fica claro em o argumento, que todo Software não existe sem uma Fonte, e em consequência, manifesta em sua Alma seu modo particular. Então quando você escreve um software, manifesta o seu modo particular, ou seja, você cria seu modo particular. Por exemplo, na [EKG](https://github.com/vokegpu/ekg) é minha autoria, porém não fiz a forma que entendemos as noções de botões, retângulos, scrollbar, etc. Somente é minha autoria a forma como organizo e apresento na tela de quem usa essas noções. Essa organização particular é uma criação minha sim, pois detenho de minha identidade, há ali, minhas técnicas, como estruturei e como pensei para fazer. Porém não criei o que é uma biblioteca de interface gráfica, somente, desenvolvi o modo particular da essência da EKG em sua Alma. Como dito, o que difere da EKG para o GTK é a essência, pois ambas, são em principio as mesmas em aspectos de compartilhar a mesma natureza que rege elas (noções deslumbradas de botões, o sentido de visualizar RGB, renderizar texto com idioma selecionado, geométrica, etc).
+Fica claro em o argumento, que todo software não existe sem uma Fonte, e em consequência, manifesta em sua Alma seu modo particular. Então quando você escreve um software, manifesta o seu modo particular, ou seja, você cria seu modo particular. Por exemplo, na [EKG](https://github.com/vokegpu/ekg) é minha autoria, porém não fiz a forma que entendemos as noções de botões, retângulos, scrollbar, etc. Somente é minha autoria a forma como organizo e apresento na tela de quem usa essas noções. Essa organização particular é uma criação minha sim, pois detenho de minha identidade, há ali, minhas técnicas, como estruturei e como pensei para fazer. Porém não criei o que é uma biblioteca de interface gráfica, somente, desenvolvi o modo particular da essência da EKG em sua Alma. Como dito, o que difere da EKG para o GTK é a essência, pois ambas, são em principio as mesmas em aspectos de compartilhar a mesma natureza que rege elas (noções deslumbradas de botões, o sentido de visualizar RGB, renderizar texto com idioma selecionado, geométrica, etc).
 
 Bom, é evidente que nós não criamos nada disso, nem mesmo o matemático que descobriu as formas geométricas a criou, ele deslumbrou os entes que satisfazem a forma geométrica. Mas neste caso, são outras discussões.
 
-Agora, claro, aqui é meramente uma brincadeira, dizer a Priori é que, a Source (Fonte) é a anterior (ontológicamente e lógicamente) a Alma do Software. E que por vez, a Alma contém esta propriedade já dita que é seu modo particular de organizar, mas nunca, uma Alma sem o principio organizador ou seja, um Software sem uma parte de sua Alma, a sua Fonte.
+Agora, claro, aqui é meramente uma brincadeira, dizer a Priori é que, a Source (Fonte) é a anterior (ontológicamente e lógicamente) a Alma do software. E que por vez, a Alma contém esta propriedade já dita que é seu modo particular de organizar, mas nunca, uma Alma sem o principio organizador ou seja, um software sem uma parte de sua Alma, a sua Fonte.
 
-Nesse caso, a substância da Alma de um Software é a Fonte, pois é em principio aqui, necessário. E por vez, que é uma referencia a substancia da ordem, que é a forma.
+Nesse caso, a substância da Alma de um software é a Fonte, pois é em principio aqui, necessário. E por vez, que é uma referencia a substancia da ordem, que é a forma.
 
 ## É-Isto!
 
