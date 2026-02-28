@@ -30,7 +30,7 @@ Bom, é evidente que nós não criamos nada disso, nem mesmo o matemático que d
 
 Agora, claro, aqui é meramente uma brincadeira, dizer a Priori é que, a Source (Fonte) é a anterior (ontológicamente e lógicamente) a Alma do software. E que por vez, a Alma contém esta propriedade já dita que é seu modo particular de organizar, mas nunca, uma Alma sem o principio organizador ou seja, um software sem uma parte de sua Alma, a sua Fonte.
 
-Nesse caso, a substância da Alma de um software é a Fonte, pois é em principio aqui, necessário. E por vez, que é uma referencia a substancia da ordem, que é a forma.
+Nesse caso, a substância da Alma de um software é a Fonte, pois é em principio aqui, necessário. E por fim, é uma referencia a substancia da ordem, que é a forma.
 
 ## É-Isto!
 
