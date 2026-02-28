@@ -12,7 +12,7 @@ Aqui, em meus estudos, gosto de escrever sobre coisas que ficam dentro de minha 
 
 ; [Espírito e Dedução](./philosophy/spirit-and-deduction.md)  
 ; [a Metaética do Suicídio](./philosophy/the-metaethics-of-suicide.md)  
-; [source priori alma](./philosophy/source-priori-alma.md) (SPA) é uma brincadeira metafisica que fiz, para explicar o nome de um [editor de texto](https://github.com/vokegpu/spa) que escrevi. 
+; [spa](./philosophy/source-priori-alma.md) (source priori alma) é uma brincadeira metafisica que fiz, para explicar o nome de um [editor de texto](https://github.com/vokegpu/spa) que escrevi. 
 
 ## Sonhos, Paracosmos e Particularidades
 
