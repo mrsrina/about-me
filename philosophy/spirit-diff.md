@@ -31,7 +31,7 @@ A questão é que não há bem nem mal, é o própio critério, é a própia per
 
 Pois bem, o Espíríto, e o critério de o quê é bem e mal provém da Sabedoria. Então, por é necessário a experiência disto, não nesta vida, mas em outras, em tantas outras, em tantos outros lugares do cósmos. O motivo que desconhecemos partem de cada uma destas diferenças.
 
-A luxúria, as ambições, e os prazeres malévolos do caráter arrogânte. São necessário para o oposto disto, a perfeição não é o pleno equilibirio entre estes dois, mas é a própia noção que estas coisas menos dizem e menos são necessárias. Qual é este critério que satisfaz a diferença entre o bem e o mal?
+A luxúria, as ambições, e os prazeres malévolos do caráter arrogânte. Não sobre viver no equilibirio entre os estados, mas é a própia noção que és tão necessário conceber está diferença em nossas mentes, que não se vê possível por negar o critério que define o bem e o mal. Qual é este critério que satisfaz a diferença entre o bem e o mal?
 
 É o principio da não-contradição harmônico em todas as outras faculdades do homem. Enquanto somos aqui, na nossa condição material, um mero momento do tempo, necessários por reconhecer a existência da perfeição sem contradições da realidade metafisica, então, se diz, quê, um homem que se educa com as diferenças, sempre virá por rejeitar um, pois reconhece a diferença do estado de um e de outro estado.
 
@@ -44,6 +44,8 @@ Por que então o agente de fatalidades és tão prejudicial ao Espírito? porqu�
 Nossas particularidades, a nossa essência jamais será fruto da luxúria promiscua, jamais será fruto da arrogância, jamais será fruto de causar fatalidade. Será fruto do mover-se entre este estado, para o seu oposto. Será fruto da sabedoria destes.
 
 Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por orientação da diferença na iluminação de Sabedoria.
+
+Assim, quando por fim, entendemos que essas diferenças existem que de-fato existe o mal e o bem, podemos por uni-los em nossa existência pelo arrependimento pleno. E este arrependimento por consciência, educa nos. E nos dá discernimento pleno. Que alguém sem nunca ter feito o bem e alguém nunca ter feito mal, entenderá.
 
 ## a Alma que transcende o Corpo
 
