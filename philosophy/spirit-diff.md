@@ -41,9 +41,9 @@ Por que então a Luxúria és tão prejudicial ao Espírito? porquê suicida ant
 Por que então a arrogẫncia és tão prejudicial ao Espírito? porquê afasta o-outro, e vive solitário.  
 Por que então o agente de fatalidades és tão prejudicial ao Espírito? porquê demonstra indiferença a vida do outro, e o faz destruir sua alma.
 
-Nossas particularidades, a nossa essência jamais será fruto da luxúria promiscua, jamais será fruto da arrogância, jamais será fruto de causar fatalidade. Será fruto do mover-se entre este estado, para o seu oposto. Será fruto da Sabedoria destes.
+Nossas particularidades, a nossa essência jamais será fruto da luxúria promiscua, jamais será fruto da arrogância, jamais será fruto de causar fatalidade. Será fruto do mover-se entre este estado, para o seu oposto. Será fruto da sabedoria destes.
 
-Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por orientação da diferença na iluminação de toda plena Sabedoria.
+Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por orientação da diferença na iluminação de Sabedoria.
 
 ## a Alma que transcende o Corpo
 
@@ -69,7 +69,7 @@ Não recorrás por vias políticas, não recorrás por vias da violência. A Vir
 
 ## Notas
 
-Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem Sabedoria, e essa Sabedoria o conduz a Verdade, e só se pode ir a Verdade com as Virtudes. E neste meio, aprendi isto... Estou aqui até hoje muito pelos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
+Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem contato com Sabedoria, e este contato-o conduz a Verdade com as Virtudes. E nesta vida, pude aprender isto... Estou aqui até hoje muito pelos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
 
 ---
 
