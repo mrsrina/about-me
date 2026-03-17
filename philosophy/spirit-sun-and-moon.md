@@ -32,14 +32,26 @@ A luxúria, as ambições, e os prazeres malévolos do caráter arrogânte. São
 
 Por um passado de luxúria, por um futuro de fidelidade. Por um passado de arrogância, por um futuro de carinho. Por um passado de agente de fatalidades, por um futuro de empatia. Sempre virá necessário, está diferença.
 
-Por que então a Luxúria és tão prejudicial ao Espírito? porquê suicida antes do tempo, e vive escravo da matéria densa.
-Por que então a arrogẫncia és tão prejudicial ao Espírito? porquê afasta o-outro, e vive solitário.
+Por que então a Luxúria és tão prejudicial ao Espírito? porquê suicida antes do tempo, e vive escravo da matéria densa.  
+Por que então a arrogẫncia és tão prejudicial ao Espírito? porquê afasta o-outro, e vive solitário.  
 Por que então o agente de fatalidades és tão prejudicial ao Espírito? porquê demonstra indiferença a vida do outro, e o faz destruir sua alma.
 
 Nossas particularidades, a nossa essência jamais será fruto da luxúria promiscua, jamais será fruto da arrogância, jamais será fruto de causar fatalidade. Será fruto do mover-se entre este estado, para o seu oposto. A nossa essência é fruto do que a Sabedoria faz por nos permitir, o momento em que se discerne do mal e do bem. Ali, nasce, nossa diferença, não é a expêriencia, é o reconhecimento da diferença entre este outro estado para este novo.
 
-Um homem jamais será bondoso se não alinhar-se em Virtude, por orientação da Sabedoria da diferença.
+Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por orientação da diferença na iluminação de toda plena Sabedoria.
 
-## A-Lua
+Mas como quê se unê o mal e o bem, como algo existir ao mesmo tempo não diz ser uma ilusão, como algo em mesmo aspecto és diferente de si mesmo?
 
-## O-Sol
+Agora nossa Alma que contém nossa essência, que difere a outros, que és fruto do reconhecimento pleno do discernimento, que desenvolve no intelectuo, no emocional, na linguagem, na arte, e nas Virtudes.
+
+Agora essa Alma, ela tens o intelectuo, em Virtude, contato com a Sabedoria. Por ela, estas dúvidas são solucionadas. Mas és necessário o discernimento, que tantos por falamos aqui.
+
+Como alguém que és tão feminina e não se dispõe do corpo nasceu, mas mesmo assim, todos são convencidos por ver sua essência, que ela quem és, não és sua condição material e mesmo assim tão impressiona com sua essência, que a faz designar quem não conectas com seu íntimo corpo material.
+
+Aqui é, a plena consciencia do discernimento. Quando por quêm vê todos os outros pela Alma, não há corpo material que satisfaz as essências das quais olham.
+
+As qualidades femininas podem florescer em um dito homem, e as qualidades masculinas podem florescer em uma dita mulher. Contudo, o seu Espírito para ele o que importa é sua Alma. Portanto, se faz justo, quê onde sua Alma o-leva, seu corpo-material vai junto. E mesmo, tão brevemente quem vê no íntimo um corpo-material que desingam o homem, a Alma não designa homem.
+
+E qual a razão e por que isso ocorre? A mensagem que devo por trazer, é que existe uma plena dúra razão, tão mais complexa e tenebrosa. Do passado, e de todo mal que vem a acontecer neste Espírito que tem como este motivo. É um motivo tão tenebroso, e que por isso mesmo, é necessário buscar a Verdade, assim, Deus e a Sabedoria justificam os motivos. Pois todos somos antes de nos arrepender-se pessoas desaparadas, e neste mesmo momento, todo aquele que é tão diferente de sua condição material, não é porquê deve nega-lo esta parte, mas sim, que deva por cultivar, mesmo sobre todo este mal que vêm acompanhar ao fizer isto.
+
+Não recorrás por vias políticas, não recorras por vias da violência. A Virtude que opera e a Essência que tu és. É quem demonstra aos outros, o critério dos céus, quem cura. 
