@@ -67,6 +67,16 @@ A mensagem que devo por trazer, é que existe uma dúra razão, tão mais comple
 
 Não recorrás por vias políticas, não recorrás por vias da violência. A Virtude que opera e a Essência que tu és. É quem demonstra aos outros, o critério dos céus, que aproxima da Sabedoria, e satisfaz a cura.
 
+## Sumário
+
+Metafísica aqui é usada no sentido mais rigoroso, o conhecimento sobre o rigor do princípio mais básico que se possa existir na mais íntima realidade, que cobre o invisivel ao visivel.
+
+Sabedoria é Sofia.
+
+Espírito é o princípio de inteligência.
+
+Alma aqui é quando o Espírito está envolto de uma veste, e esta veste pode ser imaterial ou material, e a Alma ela contém nossa Essência. Alguém sem Alma é alguém que não se diferencia de outros nos mundos mais baixos.
+
 ## Notas
 
 Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem contato com Sabedoria, e este contato-o conduz a Verdade com as Virtudes. E nesta vida, pude aprender isto... Estou aqui até hoje muito pelos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
