@@ -75,7 +75,7 @@ Sabedoria é Sofia.
 
 Espírito é o princípio de inteligência.
 
-Alma aqui é quando o Espírito está envolto de uma veste, e esta veste pode ser imaterial ou material, e a Alma ela contém nossa Essência. Alguém sem Alma é alguém que não se diferencia de outros nos mundos mais baixos.
+Alma aqui é quando o Espírito manifesta sua essência. Ou seja o Espírito dá condição para existir uma forma imaterial, dispostas de dignidades, e com sua particularidade quando manifestada por o Espírito que é sua essência. Alguém sem Alma é alguém que não se diferencia de outras Almas nos mundos mais baixos.
 
 ## Notas
 
