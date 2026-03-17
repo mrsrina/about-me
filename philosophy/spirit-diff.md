@@ -1,6 +1,10 @@
-# Espírito da Lua e do Sol
+# Espírito e a Sabedoria
 
 ## Introdução
+
+É um mero desabafo, oriundo de um sentimento profundo de dor e de conviccão de necessidade de escrever. Em começo, explico, o que vem a minha mente, que é referente a razão por o que certos espíritos carregam alguns piores tipos de condições. Eventualmente, pois digo e mensuro que toda vez que conseguimos acessar o discernimento, é quando conseguimos aceitar que existe de fato um bem e um mal. Mas não aquele subjetivo, e sim, aquele que se vê sobre a pena dura do arrependimento. Enquanto o fruto do mal causa somente o mal, mover-se do mal ao bem, causa um fruto que unê o mal e o bem. Não ao mesmo tempo temporalmente, mas de forma atemporal, é quando o critério que satisfaz está diferença que é planamente a identidade. É o fruto dos céus divinos, o educar-se iluminado da Sabedoria.
+
+E por fim, com esta orientação de Sabedoria, se ve um lindo momento, um momento onde conseguimos por compreender como certas contradições são meramente ilusões, e uma das mais importantes, o corpo designar quem somos.
 
 ## Espírito e os Motivos quais Desconhecem
 
@@ -40,6 +44,8 @@ Nossas particularidades, a nossa essência jamais será fruto da luxúria promis
 
 Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por orientação da diferença na iluminação de toda plena Sabedoria.
 
+## a Alma que transcende o Corpo
+
 Mas como quê se unê o mal e o bem, como algo existir ao mesmo tempo não diz ser uma ilusão, como algo em mesmo aspecto és diferente de si mesmo?
 
 Agora nossa Alma que contém nossa essência, que difere a outros, que és fruto do reconhecimento pleno do discernimento, que desenvolve no intelectuo, no emocional, na linguagem, na arte, e nas Virtudes.
@@ -57,3 +63,11 @@ E qual a razão e por que isso ocorre?
 A mensagem que devo por trazer, é que existe uma dúra razão, tão mais complexa e tenebrosa. Do passado e de todo mal que vem a acontecer neste Espírito que tem como este motivo. É um motivo tão tenebroso, e que por isso mesmo, é necessário buscar a Verdade, assim, Deus e a Sabedoria justificam os motivos. Pois todos somos antes de nos arrepender-se pessoas perdidas em sofrimento, e neste mesmo momento, todo aquele que é tão diferente de sua condição material, não é porquê deva nega-lo esta parte, mas sim, que deva por cultivar, mesmo sobre todo este mal que vêm acompanhar ao conjunto.
 
 Não recorrás por vias políticas, não recorrás por vias da violência. A Virtude que opera e a Essência que tu és. É quem demonstra aos outros, o critério dos céus, que aproxima da Sabedoria, e satisfaz a cura.
+
+## Notas
+
+Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem Sabedoria, e essa Sabedoria o conduz a Verdade, e só se pode ir a Verdade com as Virtudes. E neste meio, aprendi isto... Estou aqui até hoje muito pelos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
+
+---
+
+#### Sabrina Wilk em 2026-03-17 14:49:07
