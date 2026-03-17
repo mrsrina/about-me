@@ -79,7 +79,7 @@ Alma aqui é quando o Espírito manifesta sua essência. Ou seja o Espírito dá
 
 ## Notas
 
-Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem contato com Sabedoria, e este contato-o conduz a Verdade com as Virtudes. E nesta vida, pude aprender isto... Estou aqui até hoje muito pelos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
+Faça para receber, seja para ter, e nunca jamais quem te desejas o mal virá por acontecer. Deus reconhece quem tem contato com Sabedoria, e este contato-o conduz a Verdade com as Virtudes. E nesta vida, pude aprender isto... Estou aqui até hoje muito dos pecados que cometi, que hoje, em discernir, em me mover destes estados para um estado diferente, tornou-se sagrado este passado. Com gratidão...
 
 ---
 
