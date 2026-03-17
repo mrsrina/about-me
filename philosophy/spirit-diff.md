@@ -48,6 +48,8 @@ Um Espírito não conseguirá ser bondoso se não alinhar-se em Virtude, por ori
 
 Mas como quê se unê o mal e o bem, como algo existir ao mesmo tempo não diz ser uma ilusão, como algo em mesmo aspecto és diferente de si mesmo?
 
+A compreensão necessária é que não é uma contradição metafísica, o Espírito e sua Alma é em mesmo aspecto a si mesmo, mesmo sobre todo corpo que está. Pois na verdade, se é instanciado, pois nada diz em relação ao corpo. Mas também os motivos por quais existimos nunca deva ser sobre quem somos no mundo material, em uma forma reduditiva de um coletivo social. O maior erro de quêm não se orienta por Sabedoria junto a Deus, é de nega-lo, de ofende-lo. A quêm se justifica sobre todos os problemas que tem por coisas externas, tal como seu contexto material, que seu corpo está, até mesmo as particularidades do corpo material. Não vai compreender quase nada, da realidade metafísica divina.
+
 Agora nossa Alma que contém nossa essência, que difere a outros, que és fruto do reconhecimento pleno do discernimento, que desenvolve no intelectuo, no emocional, na linguagem, na arte, e nas Virtudes.
 
 Agora essa Alma, ela tens o intelectuo, em Virtude, contato com a Sabedoria. Por ela, estas dúvidas são solucionadas. Mas és necessário o discernimento, que tantos por falamos aqui.
