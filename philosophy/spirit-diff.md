@@ -15,7 +15,7 @@ Mas se há por razão desconhecida para que exista um motivo de agir assim, seri
 
 Todas estas dores que ocupam o nosso Perispírito que atingem o nosso Espírito. É as aulas que a vida dá um fim educativo, para florescer todos os atributos de faculdades que é ontológico ao Espírito (em palavras simples, para todo que está sobre o princípio de inteligência, é digno de todas as faculdades, pois manifesta sua existência sobre o principio que satisfaz estas mesmas faculdades em sentido lógico necessário).
 
-Quem está instanciado, vivído, e que é de intelectuo favorável a compreender que há algo divino ao nosso mundo, percebe que há conhecidencias significativas, e entre estas, motivos que percorrem nosso caráter. As nossas particularidades que diferencia de outros, se diz, a nossa essência. Ela é por definida por nossas mesmas escolhas. Ou seja, se é algo de sua particularidade, de sua essência alguém quem alinha-se as Virtudes, pois então, és você em consciência de uma Alma.
+Quem está instanciado, vivído, e que é de intelectuo favorável a compreender que há algo divino ao nosso mundo, percebe que há coincidências significativas, e entre estas, motivos que percorrem nosso caráter. As nossas particularidades que diferencia de outros, se diz, a nossa essência. Ela é por definida por nossas mesmas escolhas. Ou seja, se é algo de sua particularidade, de sua essência alguém quem alinha-se as Virtudes, pois então, és você em consciência de uma Alma.
 
 E o corpo material, este, meramente importa para quem somos? Pontua-se que não pode existir uma independência do corpo e de quem somos quando estamos no mundo denso material, também, um necesssário metafísico para dar critério de diferença do que é verdadeiramente mal e verdaderiamente bom.
 
