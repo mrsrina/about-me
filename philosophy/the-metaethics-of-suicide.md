@@ -56,7 +56,7 @@ Assim ao utilitarista, relativistas de valores, idealistas metaéticos usam-se o
 
 ### Drama-Humano e a Maldade
 
-A maldade, aquilo que é oposto do fator da benevolência (está palavra me causa sensações muito profundas, em respeito a alguém que amo muito, desculpe, continuamos). O mal se define por aquilo que rejeita a verdade, sim, exatamente. A bondade está em seguir o correto em todas as faculdades desde que implicam em conclusões de forma harmônica (pode se dizer coerência geométrica) pelo o que é correto.
+A maldade, aquilo que é oposto do fator da benevolência. O mal se define por aquilo que rejeita a verdade, sim, exatamente. A bondade está em seguir o correto em todas as faculdades desde que implicam em conclusões de forma harmônica (pode se dizer coerência geométrica) pelo o que é correto.
 
 Quando o suicida termina a sua vida, ele o nega a sua natureza, e mesmo que em seu drama-humano possa parecer justificado, não o torna correto, em decorrência também pragmática da maldade que ele escolheu, e que ecoa aos terceiros que o amam incondicionalmente.
 
@@ -88,7 +88,7 @@ Ao concluir, o suicídio não é um direito, é uma maldade, e tal sofrimento, n
 
 ## Notas Pessoais
 
-Sim, assim já tive momentos de glória e momentos que me fizeram quase cometer esta maldade comigo mesma, contudo, o amor de Cristo e o aprendizado que tive, junto a alguém qual nunca esquecerei, me fez tomar responsabilidade em elevar a excelência destas faculdades mal compreendidas que assim estudo. Obrigada por ler, gratidão.
+Sim, assim já tive momentos de glória e momentos que me fizeram quase cometer esta maldade comigo mesma, contudo, o amor de Cristo e o aprendizado que tive, me fez tomar responsabilidade em elevar a excelência destas faculdades mal compreendidas que assim estudo. Obrigada por ler, gratidão.
 
 ---
 
