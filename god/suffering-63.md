@@ -12,6 +12,18 @@ As especificações de nosso software de discernimento [LOG](./1977.md#conclus%C
 
 Bom, a primeira citação da prisão de ferro negro ocorre na página 63 da edição mais recente do livro Valis de Phillip. K. D., pensamos um pouco, este número nos dá uma oportunidade oculta e silenciosa de observar a repetição dos números. Guarde a informação sobre o número 63 do livro de Phillip K. D..
 
+Enquanto escrevia este artigo, houve uma sincronia com a prisão de ferro negro. Meu celular começou a passar vídeos sem parar, um bug sinistro, que nem fechando o aplicativo, resolvia. Logo, após conseguir resolver, vi que foi publicada uma música chamada *dark tower of doom* exatamente às 15:15.
+
+<img width="647" height="1067" alt="image" src="https://github.com/user-attachments/assets/adcea2c5-d180-4e09-8d60-8405bad7a4f2" />
+
+Como percebe, em nosso software [LOG](./1977.md) temos mapeado o significado de Perdição, uma menção ao artigo que escrevi.
+
+<img width="1029" height="441" alt="image" src="https://github.com/user-attachments/assets/a3cb08ca-43eb-4e0e-8b9c-a72de72b3bcf" />
+
+<img width="1043" height="115" alt="image" src="https://github.com/user-attachments/assets/59ac8852-399e-43db-ad64-beb80eee1dbf" />
+
+Recomendo atentar ao entendimento deste software LOG para perceber a Black Iron Prison.
+
 ### a Transilileração de Sofrimento em Hebraico
 
 Outra importantíssima aparição do número 63 é numa gematria transliteral de sofrimento em hebraico da palavra *Sevel* (*Sebal*), conforme o [site](https://biblehub.com/hebrew/5447.htm) nos mostra:  
