@@ -14,7 +14,7 @@ Bom, a primeira citação da prisão de ferro negro ocorre na página 63 da edi�
 
 ### a Transilileração de Sofrimento em Hebraico
 
-Outra importantíssima aparição do número 63 é numa gematria transliteral de sofrimento em hebraico da palavra *Sevel* (*Sebal*), conforme o [site](https://biblehub.com/hebrew/5447.htm) nos mostra:
+Outra importantíssima aparição do número 63 é numa gematria transliteral de sofrimento em hebraico da palavra *Sevel* (*Sebal*), conforme o [site](https://biblehub.com/hebrew/5447.htm) nos mostra:  
 <img width="745" height="115" alt="image" src="https://github.com/user-attachments/assets/9b0ec922-4b55-4a50-af84-8be6a1f08d2e" />
 
 A gematria simples para honrar a transliteração de Sevel, nos retorna ao número *63*.
