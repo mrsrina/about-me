@@ -39,6 +39,8 @@ A gematria simples para honrar a transliteração de Sevel, nos retorna ao núme
 Devemos nos perguntar, por que olhar a gematria simples e não a hebraica? Não estamos afastando o significado original e autêntico?  
 [] Não estamos, pois estamos usando o software de discernimento vivo, entendemos as aparições dos números sem sua substância divina, mas somente o efeito último dá consequência dele. Isto é um fato importantíssimo para entender que não estamos trabalhando com o significado divino presente na substância do número, mas usando nosso idioma, a transliteração para o português latino, já que se espera contundência com nosso idioma próximo para desvendar o número da gematria *63*.
 
+A black iron prison nos causa sofrimento por acharmos que tudo neste mundo está acontecendo e, de certa maneira, mesmo Phillip K. D. aceitou o sofrimento deste mundo; inevitavelmente, sofrer ocorre, mas deixo uma provocação: deseja sofrer por um ciclo em vão ou sofrer pela luta para dar um fim ao ciclo terrível hologromático que vivemos?
+
 ### Oblivion, e Amense
 
 Num jogo antigo de minha infância, há uma cena sobre o Shadow of Oblivion. No jogo, eles são uma raça fora da compreensão humana onde estão tentando reviver um ser primeiro, um ser que irá trazer a eliminação do espírito Turok e também de toda existência, eles se intutulam o esquecimento.
