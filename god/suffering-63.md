@@ -63,8 +63,8 @@ Bom, deixarei sua liberdade pensar, pois pouco é suficiente para muito.
 
 Não há nenhuma além de nos lembrar que a prisão de ferro negro nos impede de lembrar de quem fomos e somos de verdade. Mas tem um motivo deixado pela máquina que conduz o holograma, seja, uma luta espiritual e também a própria confirmação do que estamos vivendo, nesta máquina, que imaginamos ser real.
 
-## Conclusão
-
-A expressão da Verdade surge pelo equilíbrio da Lua e do Sol. A intuição e a razão em pleno equilíbrio.
+---
 
 ### Sabrina W. 15:48:22 12-06-2026
+
+A expressão da Verdade surge do equilíbrio entre a Lua e o Sol. A intuição e a razão em pleno equilíbrio
