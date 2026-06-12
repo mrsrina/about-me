@@ -67,4 +67,4 @@ Não há nenhuma além de nos lembrar que a prisão de ferro negro nos impede de
 
 ### Sabrina W. 15:48:22 12-06-2026
 
-A expressão da Verdade surge do equilíbrio entre a Lua e o Sol. A intuição e a razão em pleno equilíbrio
+A expressão da Verdade surge do equilíbrio entre a Lua e o Sol. A intuição e a razão em pleno equilíbrio do Amor e da Justiça. A beleza em Tiphareth.
