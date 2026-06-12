@@ -2,7 +2,7 @@
 
 ## Introdução
 
-Vamos usar o software de discernimento, na verdade, uma pequena DLL, ou melhor, um software SDK para compreender a realidade hologramática que vivemos. Que foi construído sobre o nome de [LOG](./1977.md). Um kit de desenvolvimento, ou melhor, desenvolvimento de conhecimentos futuros e passados sobre a natureza dos números. Embora seja um pequeno software como uma informação de discernimento, ele deve ser usado com maestria, uma vez, que a Perdição perambula perto da Luz de Sabedoria.
+Vamos usar o software de discernimento, na verdade, uma pequena DLL, ou melhor, um software SDK para compreender a realidade hologramática que vivemos. Que foi construído sob o nome de [LOG](./1977.md). Um kit de desenvolvimento, ou melhor, desenvolvimento de conhecimentos futuros e passados sobre a natureza dos números. Embora seja um pequeno software como uma informação de discernimento, ele deve ser usado com maestria, uma vez, que a Perdição perambula perto da Luz de Sabedoria.
 
 ## o Número 63
 
@@ -65,6 +65,6 @@ Não há nenhuma além de nos lembrar que a prisão de ferro negro nos impede de
 
 ## Conclusão
 
-A expressão da Verdade surge peo equilibrio da Lua e do Sol. A intuição e a razão em pleno equilibrio.
+A expressão da Verdade surge pelo equilíbrio da Lua e do Sol. A intuição e a razão em pleno equilíbrio.
 
-#### Sabrina W. 15:48:22
+### Sabrina W. 15:48:22 12-06-2026
