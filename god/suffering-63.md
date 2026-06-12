@@ -45,7 +45,7 @@ A black iron prison nos causa sofrimento por acharmos que tudo neste mundo está
 
 Num jogo antigo de minha infância, há uma cena sobre o Shadow of Oblivion. No jogo, eles são uma raça fora da compreensão humana onde estão tentando reviver um ser primeiro, um ser que irá trazer a eliminação do espírito Turok e também de toda existência, eles se intutulam o esquecimento.
 
-Há um vídeo popular, o mais popular do youtube sobre essa cena, é este [aqui](https://www.youtube.com/watch?v=mOEF3gDVB38). No mesmo vídeo temos o número 63, que nos leva ao sofrimento, a Sevel. Bom, poderia dizer, é as coincidências dos números, eles aparecem a nós a todo momento, largue de esquizofrência Sabrina!
+Há um vídeo popular, o mais popular do youtube sobre essa cena, é este [aqui](https://www.youtube.com/watch?v=mOEF3gDVB38). No mesmo vídeo temos o número 63, que nos leva ao sofrimento. Bom, poderia dizer, é as coincidências dos números, eles aparecem a nós a todo momento, largue de esquizofrência Sabrina!
 
 <img width="460" height="146" alt="image" src="https://github.com/user-attachments/assets/a6cb5a8e-83eb-4ffa-bec9-fc21d98ed860" />
 
