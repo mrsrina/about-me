@@ -12,6 +12,8 @@ As especificações de nosso software de discernimento [LOG](./1977.md#conclus%C
 
 Bom, a primeira citação da prisão de ferro negro ocorre na página 63 da edição mais recente do livro Valis de Phillip. K. D., pensamos um pouco, este número nos dá uma oportunidade oculta e silenciosa de observar a repetição dos números. Guarde a informação sobre o número 63 do livro de Phillip K. D..
 
+<img width="938" height="473" alt="image" src="https://github.com/user-attachments/assets/5cf2dc7d-c15e-4741-91a6-4daa8b302397" />
+
 Enquanto escrevia este artigo, houve uma sincronia com a prisão de ferro negro. Meu celular começou a passar vídeos sem parar, um bug sinistro, que nem fechando o aplicativo, resolvia. Logo, após conseguir resolver, vi que foi publicada uma música chamada *dark tower of doom* exatamente às 15:15.
 
 <img width="647" height="1067" alt="image" src="https://github.com/user-attachments/assets/adcea2c5-d180-4e09-8d60-8405bad7a4f2" />
