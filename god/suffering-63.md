@@ -71,6 +71,13 @@ Estamos condenados pelo processo de esquecimento, mas podemos deixar o esquecime
 Uma menção em Valis:
 <img width="1280" height="322" alt="image" src="https://github.com/user-attachments/assets/b8bf9c3d-b16f-4bfd-941a-71490bd7fe13" />
 
+Outra sincronia é que vosso Mestre Aleph teve contato com o universo místico de Turok, ao falar sobre The Unknown Land no mais recente [vídeo](https://youtu.be/MvbtNiE_-9c?t=555) (postado 2 dias após), um conceito igual ao The Lost Land de Turok, e que, já relacionado, tem influência de Oblivion.
+
+<img width="1831" height="839" alt="image" src="https://github.com/user-attachments/assets/510b3a9a-47be-4098-a839-f3a52a125904" />
+
+Quadrinho do Turok Son of Stone qual foi usado para o novo universo dos jogos:
+<img width="1350" height="1800" alt="image" src="https://github.com/user-attachments/assets/0bd2847d-8f1d-47e1-931e-5a3535871b7c" />
+
 Neste desenho, foi quando relacionei ao 63 a prisão de ferro negro, por intuição desenhada.
 
 <img width="1280" height="908" alt="image" src="https://github.com/user-attachments/assets/01e3af40-642f-4d94-a4db-b7a4dfb26db2" />
