@@ -30,7 +30,9 @@ Recomendo atentar ao entendimento deste software LOG para perceber a Black Iron 
 
 ### a Transilileração de Sofrimento em Hebraico
 
-Outra importantíssima aparição do número 63 é numa gematria transliteral de sofrimento em hebraico da palavra *Sevel* (*Sebal*), conforme o [site](https://biblehub.com/hebrew/5447.htm) nos mostra:  
+Sevel é a entidade de meu livro (precisamente, desde meus 17 anos tem aparecido), uma entidade com a qual tive problemas. Tive que deixar de escrever esta história e todos os interesses pessoais envolvidos, pois esta entidade estava me afetando muito e afetando também os próximos. Mas no fim, consegui entender tanto o motivo de aparecer quanto o que gostaria de significar no momento pelo número 63.
+
+Outra importantíssima aparição do número 63 é numa gematria transliteral de sofrimento em hebraico da palavra *Sevel* (*Sebel*), conforme o [site](https://biblehub.com/hebrew/5447.htm) nos mostra:  
 <img width="745" height="115" alt="image" src="https://github.com/user-attachments/assets/9b0ec922-4b55-4a50-af84-8be6a1f08d2e" />
 
 A gematria simples para honrar a transliteração de Sevel, nos retorna ao número *63*.
