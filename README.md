@@ -1,3 +1,5 @@
+1977~
+
 # ...
 
 É só um reposítório pra colocar ensinamentos própios e externos, ensaios e coisas sem sentido.
@@ -8,4 +10,5 @@
 ; [Espirito e Sabedoria](./philosophy/spirit-diff.md) é uma questão íntima que não quer dizer muito, além de ser nada-com-nada de angústia.
 ; [a Geometria Divina da Imagem projetada dos Números em sua Excelência Condição Síncrona](./philosophy/the-geometric.md) um ensaio sobre o lado mistico e geométrico de nossa realidade.  
 ; [1977](./god/1977.md) - Sabedoria  
-; [Suffring 63](./god/suffering-63.md) - Prisão de Ferro Negro 
+; [Suffring 63](./god/suffering-63.md) - Prisão de Ferro Negro  
+; [Lamentos de 37,Clemência](./god/sue.md) - Lamentos de vossa 37, pela Clemência da Perdição.
