@@ -18,7 +18,7 @@ Enquanto escrevia este artigo, houve uma sincronia com a prisão de ferro negro.
 
 <img width="647" height="1067" alt="image" src="https://github.com/user-attachments/assets/adcea2c5-d180-4e09-8d60-8405bad7a4f2" />
 
-Outra coisa importante é 27. Foi exatamente no horário 27 que tirei a foto, sem perceber. Temos relacionado também o momento 27 como prelúdio a Perdição. No [LOG](./1977.md) resolvemos a charada, ou pelo menos, pouco dela.
+Outra coisa importante é 27. Foi exatamente no horário 27 que tirei a foto, sem perceber. Temos relacionado também o momento 27 como prelúdio a Potência dos 52. No [LOG](./1977.md) resolvemos a charada, ou pelo menos, pouco dela.
 
 Como percebe, em nosso software [LOG](./1977.md) temos mapeado o significado de Perdição, uma menção ao artigo que escrevi.
 
