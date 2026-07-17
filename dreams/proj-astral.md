@@ -8,7 +8,7 @@
 
 ### Consciência
 
-Antes de adentrar as práticas, devo lhe dar pouco do entendimento básico sobre o que é realmente a consciência, como conseguimos acessar coisas fora de nosso corpo animal e como isso coexiste com as tradições dos Platônicos como Jamblico, e todo, o new-age moderno terrível consumido pela relativização e desconhecimento de nossa natureza divina e sobre o lugar que vivemos.
+Antes de adentrar as práticas, devo lhe dar pouco do entendimento básico sobre o que é realmente a consciência, como conseguimos acessar coisas fora de nosso corpo animal e como isso coexiste com algumas noções atuais.
 
 #### Informação, Matrizes de Perspectiva e Consciência
 
@@ -39,6 +39,24 @@ O mundo astral ou o que chamamos de inconsciente coletivo, é justamente onde as
 Embora o mundo astral não seja necessáriamente o mundo divino, por mais que o mundo divino, o mundo moral, e o mundo dos sentidos partilham sem diferença, eles não são tão a mesma coisa sem se iluminar antes. Pois atentamos, uma projeção astral, visualizar o mundo astral, nunca é condição de valor para Espiritualidade. Qualquer um, exatamente, qualquer um acessa-o, mas poucos usam e compreendem o seu propósito nesta parte bagunçada da realidade.
 
 Treinamento psiquico e dedicação. Não há fruto algum em se operar neste mundo por motivações que não agregem, se não, para aprender a evoluir e se desenvolver por um propósito divino, em melhorar a si mesmo, em desejar seguir seus desejos verdadeiros de sua Alma.
+
+#### Elementais, Entidades e Dons de nossa Alma
+
+Elementais existem, são criaturas, entidades que não partilham da natureza do Homem, do seu Espírito. Estes podem ser dragões, podem ser salamandras, podem ser gnomos, podem ser exatamente tudo. Eles existem neste mundo espiritual, ó é díficil e perigoso lidar com eles. Jamblico e outros Teurgistas reconhecem a existência deles, e até mesmos os Judeus entendem as suas naturezas. Embora isto seja um termo Elemental e Elementais, eles tiveram origem pela doutrina teosófica aqui no ocidente, embora a origem seja muito antes, as noções sobre, nasceram dos livros de Blavatsky. Sejamos honoráveis, não julgamos o seu livro sem o devido respeito pela dedicação. Pois bem, o mundo astral há criaturas animalescas, arranhas, plantas e de todo tipo. Podem ser diretamente elementais, podem ser variações, podem ser várias coisas.
+
+Algumas entidades vivem por lá, nem sempre são elas per si, assim, como os Kardecistas tem sido receptáculos de ditos Santos, embora tenha verdade em certa parte das cartas, nem todos são confiaveis a quem dizem ser.
+
+É necessário compreender sobre a grande fraternidade branca, a grande fraternidade negra, e a grande fraternidade dourada, o caminho da Theosis; só assim, podemos inicialmente tentar compreender todas estas noções atuais, e claro, uma bela leitura virtuosa pelo entendimento. Deixarei o canal de mestre Aleph como recomendação, Aleph Rofer no youtube.
+
+Deixarei alguns avisos sobre o mundo astral e conselhos.
+
+[-] Não seja imundo com má intenções. Basta que o prazer apareça, que as entidades, ditas, corpos astrais, cascas astrais viciadas em prazer, te consumam. Isto é uma armadilha de nosso mundo material. Seja um Espírito inabálavel, seja fiél a seu companheiro, fiél a sua Verdade interna, não decaía nem mesmo a estes seres que querem sua energia por mero interesse própio. Eles estão muito próximos de você. É um aviso, e o meu conselho é praticar Penitência, controle do Espírito sobre a Carne.
+
+[-] Todos somos destinados, e as vezes, podememos receber nossos destinos no mundo astral, iluminar-se pela reflexão destes. Mantenha consigo mesmo, uma clara percepção do que vê e o que ocorre.
+
+[-] Escreva sobre suas expêriencias.
+
+Agora, outro caso importante é nossos dons, podemos visualizar o que queremos, e criarmos robos astrais, e até mesmo, se for um Mago inabalável, materializar enquanto Desperto até outros vêem. Mas isto, tenha Prudência e Temperança. Poder nas mãos dos Espíritos fracos, é um desastre de injustiça aos outros. E este poder, te consumirá até o fim desta sua existência, até que seja reparado káricamente por uma Obra, ou nunca reparáda. Não use por bens própios, por magnetismo animal e magnetismo material. As esferas acimas não permitem tais atrocidades por muito tempo. Breve minhas palavras, rude aos vulgos, mas um conselho aos sábios.
 
 ### Locomoção
 
