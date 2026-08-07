@@ -6,6 +6,8 @@
 
 Peixe que me trouxe e me revelou o que já havia pela Lua guardado; emergiu e vi, com os olhos e não com os olhos da Carne. Ó é Tú vidência; ó é Tú Alma que permite vê mesmo sob a incredulidade de minha Carne e mente contida.
 
+Assim como embaixo, assim como em cima; eis o mundo pequeno, eis o mundo maior; a verdade é que toda mente, toda mente é igual aos 3 peixes. Vivemos no mundo do meio, no peixe do meio, uma projeção destes dois mundos ao redor de vós. Nosso microkosmo é o mesmo, e é afetado por estes dois peixes. Sincronização.
+
 # Uno Cristo
 
 #### 1 Penitência Una de Cristo 06/08/26 22:58:06
