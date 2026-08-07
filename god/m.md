@@ -1,5 +1,7 @@
 # נננ (Peixe Peixe Peixe)
 
+Por סו (Sáv), 52.
+
 # Mikrokosmo
 
 Ó vi com meu olho mas não com minha Carne. Minha Carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó; um não é real, um tem pesadelos intermináveis e incompreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
