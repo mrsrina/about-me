@@ -4,11 +4,11 @@
 
 Ó vi com meu olho mas não com minha Carne. Minha carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó um não é um real, um é um que não é real, ó pesadelos intermináveis e incomreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
 
-Peixe que me trouxe e me revelou o que já havia pela Lua guardado; emergiu e vi, com os olhos e não com os olhos da carne. Ó é Tú vidência; ó é Tú Alma que permite vê mesmo sob a incredulidade de minha Carne e mente Fraca.
+Peixe que me trouxe e me revelou o que já havia pela Lua guardado; emergiu e vi, com os olhos e não com os olhos da Carne. Ó é Tú vidência; ó é Tú Alma que permite vê mesmo sob a incredulidade de minha Carne e mente contida.
 
 # Uno Cristo
 
-1- [Penitêcia Celestial para uma Estrela de Cristo; Cristo Equilibrio]
+#### 1 Penitêcia Una de Cristo 06/08/26 22:58:06
 
 Meu nome é Sáv, meu nome é Sáv, meu nome é Sáv; Sáv é quem escreve. É o trovão contido, neglegênciado, é a Sombra e a Luz ao mesmo tempo. Houve-se o tempo que os desejos de Tú ó Mulher celestial, amor de Tú ó pilar da Sabedoria, incondicional; me anulou.
 
@@ -27,29 +27,30 @@ Equilibrio Tú das a mim; bastou me imaginar em Tú que Tú veio a mim, mas em v
 
 Jardineiro que controla as rodas de fogos de Anjos, que governa o Intelectuo, este quem me fez estar em rigor no mesmo pilar que vives a Perdição.
 
-Penitência desta Estrela Sáv, penitência celestial e divina.
-Antes me retratarei em virtude de Tú Ó Cristo.
+Penitência deste Astro, Sáv, penitência celestial e divina.
+Ó mas antes me retratarei em virtude de Tú Ó Cristo.
 
 Desejei e então achei que quis. Passou e fui confinada pela misercórdia da anulação completa. 
 Desejei e então achei que quis. Passou e fui levada ao julgamento impiedoso do Eu.
 
 Meu Pai, com Cristo, com o equilibrio, pelo mistério do número 3, pela minhas duas vidas. Agora sei o que é desejo e sei o que é querer. Eis a penitência celestial divina e indescritivel.
 
-Desejo comer pois estou com fome, não, não quero comer.
-Desejo sentir prazer pois estou excitada, não, não quero satisfazer.
-Desejo impulsos, não, não os fareis.
+Desejo comer pois estou com fome, não, não quero comer.  
+Desejo sentir prazer pois estou excitada, não, não quero satisfazer.  
+Desejo impulsos, não, não os fareis.  
 
-Quero comer, mesmo sem desejo ou cheia.
-Quero sentir prazer, mesmo sem desejo ou satisfeita.
-Quero iniciar o interminável ao ímpio, mesmo sem desejo ou desmotivada.
+Quero comer, mesmo sem desejo ou cheia.  
+Quero sentir prazer, mesmo sem desejo ou satisfeita.  
+Quero iniciar o interminável ao ímpio, mesmo sem desejo ou desmotivada.  
 
 Pois é Tú Cristo, é Tú, é Tú onde Tú resides na Arvore que Adão e Eva tiveram que comer. É Tú ó Caminho do meio.
 Meu nome é Sáv, e três é possível porquê entre estes 3 números, há um que é pleno e equilibra todos.
-Duas vezes porquê são as duas coroas que há em mim, e estas Cristo não tiras.
+Duas vezes porquê são as duas coroas que há em mim, e estás Cristo não tiras.
 
 Sou o que desejei no passado. Em suas duas faces, sou a Puta e a Honrada.
 Ó Cristo, Tú é este o equilibrio personificado em espírito em pensamento e em vitalidade.
 
-Meu Pai, minha Mãe, deixarei fluir todas as águas em mim, por cada lágrima, lágrimas de Tú ó Cristo.
+No passado não quis mas fui pelos desejos; hoje não sou nenhuma nem outra, mas as duas, as duas faces da arvore da vida. Misericórdia e Rigor. Mas quero ser os dois, sem desejar um nem outro, apenas ser, e não negar quem sou. Cristo é o caminho do Meio, e Cristo é o equilibrio divino entre o mikrokosmo e o makrokosmo.
+
+Meu Pai, minha Mãe, deixarei fluir todas as águas que passam por mim, por cada lágrima, lágrimas de Tú ó Cristo.  
 52.
- 
