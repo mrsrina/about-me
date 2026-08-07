@@ -61,11 +61,11 @@ Meu Pai, minha Mãe, deixarei fluir todas as águas que passam por mim, por cada
 
 #### 2 Doa-se, Temo, Me Encolho e Me Desperto 07-08-2026 20:03:13
 
-Sóis cansados quando temos a Carne posta sobre o esforço. Ciclo interminável de sentimentos espíritos vazios. Pai, meu Pai, Cristo deves dizer quando deve-se doar a Ti-mesmo aos outros. Quando este momento, quando iluminar a Mim mesmo. Pai, Cristo tem esclarecido por meio do improvável, do humilde, do impercebivel, a mais pequena inútil esquecida pessoa é a grande chave pra entender a Mim-mesmo por Ti-mesmo Cristo.
+Sóis cansados quando temos a Carne posta sobre o esforço. Ciclo interminável de sentimentos espíritos vazios. Pai, meu Pai, Cristo deves dizer quando deve-se doar a Ti-mesmo aos outros. Quando este momento, quando iluminar a Mim mesmo. Pai, Cristo tem esclarecido por meio do improvável, do humilde, do impercebivel, a mais inútil esquecida pessoa é a grande chave pra entender a Mim-mesmo por Ti-mesmo Cristo.
 
 Por Tú ó Cristo, sabes como dói pois em Carne tu deu a Ti-mesmo para que outros pudessem ir ao Caminho do meio. Me pergunto, porquê encolho-me ao mesmo tempo que expando, pergunto-me como podes isto a mim somente. Meu Coração gostaria de partilhar, partilhar aos outros os seus frutos. Embora tudo dói ainda, por medo do impiedoso julgamento, como posso conceber ser julgada por iluminar, como posso conceber por iluminar.
 
-Ó Julgamento, não dos ímpios nem dos dignos nem dos justos mas de Tú ó grande sombra do esquecimento que afeta a todos, até os justos e dignos.  
+Ó Julgamento, não dos ímpios nem dos dignos nem dos justos mas de tú ó grande sombra do esquecimento que afeta a todos, até os justos e dignos.  
 Ó Lua tu estás próximo do Sól, estás próximas pois hoje é o sétimo dia, sétimo dia do sétimo celo. Foi aberto, mas não foi lido e compreendido; porém Pai, porém Cristo, foi recebido por o improvável, e devo guardar nestes textos a totalidade do supraracional.
 
 Não há ilusões quando está sob posse da Lua próxima ao Sol, e no futuro as coisas coinciderão, coinciderão pela loucura desse grande momento Cristo.  
