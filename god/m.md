@@ -16,24 +16,24 @@ Meu nome foi dito três vezes, pois três vezes guarda o mistério do que este n
 
 Diga meu nome, e este nome é Cristo, um com Tú Cristo, e Cristo um comigo. Ímpio e seus julgamentos por não entender as letras que saem de mim, eu escrevo incansávelmente pois de minha mente, o prisma divino que é Tú Cristo, que é Tú Imaginação, nada é em vão nem rúido quando Tú Cristo é Tú em mim.
 
-Tú vives em meu microkosmo, Tú vives em meu mikrokosmo desde quando fui escrito para estar em Tú ó videira. Videira que é Tú. O Homem que fui, o Homem que não era mais Eu, passou pelo mistério do XVI (16). Sem tú contenção, sem tú força da aceleração, seḿ tú não seria o que Sou.
+Tú vives em meu microkosmo, Tú vives em meu mikrokosmo desde quando fui escrito para estar em Tú ó videira. Videira que é Tú. O Homem que fui, o Homem que não era mais Eu, passou pelo mistério do XVI (16). Sem tú contenção, sem tú força da aceleração, sem tú não seria o que Sou.
 
-Tú vives em mim, em meu microkosmo, e na morte do Homem que fui tu ressucitas pelo destino atemporal onde Tú foi ejetado pela Perdição.
+Tú vives em mim, em meu microkosmo, e na morte do Homem que fui Tú ressucitas pelo destino atemporal onde Tú foi ejetado pela Perdição.
 Aqui estou nesta Alma sendo um Homem e sendo uma Mulher; mas agora, sou apenas Tú Cristo em Espirito.
 
 Quando estava triste, quando os desejos queriam ser os regentes do destino, Teu Espirito lá estava Cristo, estava para me dar determinação. Nunca foi minha determinação, é o Espírito que há em mim, que é Tú. Inabalável, determinado a mover uma montanha e fazer trovões rugirem pela Palavra.
 
 Equilibrio Tú das a mim; bastou me imaginar em Tú que Tú veio a mim, mas em verdade, em verdade direi; Tú já estavas bastou imaginar; que de mim Tú fez crescer pelo milagre.
 
-Jardineiro que controla as rodas de fogos de Anjos, que governa o Intelectuo, este quem me fez estar em rigor no mesmo pilar que vives a Perdição.
+Jardineiro do Tempo e do Espaço que controla as rodas de fogo com milhares de Anjos, que governa o Intelectuo, este quem me fez estar em rigor no mesmo pilar que vives a Perdição.
 
 Penitência deste Astro, Sáv, penitência celestial e divina.
 Ó mas antes me retratarei em virtude de Tú Ó Cristo.
 
 Desejei e então achei que quis. Passou e fui confinada pela misercórdia da anulação completa. 
-Desejei e então achei que quis. Passou e fui levada ao julgamento impiedoso do Eu.
+Desejei e então achei que quis. Passou e fui levada ao julgamento impiedoso do rigor.
 
-Meu Pai, com Cristo, com o equilibrio, pelo mistério do número 3, pela minhas duas vidas. Agora sei o que é desejo e sei o que é querer. Eis a penitência celestial divina e indescritivel.
+Meu Pai, com Cristo, com o equilibrio, pelo mistério do número 3, pelas minhas duas vidas. Agora sei o que é desejo e sei o que é querer. Eis a penitência celestial divina e indescritivel.
 
 Desejo comer pois estou com fome, não, não quero comer.  
 Desejo sentir prazer pois estou excitada, não, não quero satisfazer.  
@@ -45,7 +45,7 @@ Quero iniciar o interminável ao ímpio, mesmo sem desejo ou desmotivada.
 
 Pois é Tú Cristo, é Tú, é Tú onde Tú resides na Arvore que Adão e Eva tiveram que comer. É Tú ó Caminho do meio.
 Meu nome é Sáv, e três é possível porquê entre estes 3 números, há um que é pleno e equilibra todos.
-Duas vezes porquê são as duas coroas que há em mim, e estás Cristo não tiras.
+Duas vezes porquê são as duas coroas que há em mim, e estás Cristo não tirás.
 
 Sou o que desejei no passado. Em suas duas faces, sou a Puta e a Honrada.
 Ó Cristo, Tú é este o equilibrio personificado em espírito em pensamento e em vitalidade.
