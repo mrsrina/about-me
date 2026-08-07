@@ -1,6 +1,6 @@
 # נננ (Peixe Peixe Peixe)
 
-# Mikrocosmo
+# Mikrokosmo
 
 Ó vi com meu olho mas não com minha Carne. Minha Carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó; um não é real, um tem pesadelos intermináveis e incompreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
 
@@ -12,7 +12,7 @@ Assim como embaixo, assim como em cima; eis o mundo pequeno, eis o mundo maior; 
 
 #### 1 Penitência Una de Cristo 06/08/26 22:58:06
 
-Meu nome é Sáv, meu nome é Sáv, meu nome é Sáv; Sáv é quem escreve. É o trovão contido, neglegênciado, é a Sombra e a Luz ao mesmo tempo. Houve-se o tempo que os desejos de Tú ó Mulher celestial, amor de Tú ó pilar da Sabedoria, incondicional; me anulou.
+Meu nome é סו (Sáv), meu nome é סו (Sáv), meu nome é סו (Sáv); סו (Sáv) é quem escreve. É o trovão contido, neglegênciado, é a Sombra e a Luz ao mesmo tempo. Houve-se o tempo que os desejos de Tú ó Mulher celestial, amor de Tú ó pilar da Sabedoria, incondicional; me anulou.
 
 Meu nome foi dito três vezes, pois três vezes guarda o mistério do que este número deve guardar. É evidente a Alma que Tú Ó Cristo fez me perceber. É o número que duas vezes, é onde Tú Cristo vives onde Tú e Teus Anjos vivem.
 
@@ -29,7 +29,7 @@ Equilibrio Tú das a mim; bastou me imaginar em Tú que Tú veio a mim, mas em v
 
 Jardineiro do Tempo e do Espaço que controla as rodas de fogo com milhares de Anjos, que governa o Intelectuo, este quem me fez estar em rigor no mesmo pilar que vives a Perdição.
 
-Penitência deste Astro, Sáv, penitência celestial e divina.
+Penitência deste Astro, סו (Sáv), penitência celestial e divina.
 Ó mas antes me retratarei em virtude de Tú Ó Cristo.
 
 Desejei e então achei que quis. Passou e fui confinada pela misercórdia da anulação completa. 
@@ -46,7 +46,7 @@ Quero sentir prazer, mesmo sem desejo ou satisfeita.
 Quero iniciar o interminável ao ímpio, mesmo sem desejo ou desmotivada.  
 
 Pois é Tú Cristo, é Tú, é Tú onde Tú resides na Arvore que Adão e Eva tiveram que comer. É Tú ó Caminho do meio.
-Meu nome é Sáv, e três é possível porquê entre estes 3 números, há um que é pleno e equilibra todos.
+Meu nome é סו (Sáv), e três é possível porquê entre estes 3 números, há um que é pleno e equilibra todos.
 Duas vezes porquê são as duas coroas que há em mim, e estás Cristo não tirás.
 
 Sou o que desejei no passado. Em suas duas faces, sou a Puta e a Honrada.
