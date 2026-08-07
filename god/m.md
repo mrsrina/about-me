@@ -2,7 +2,7 @@
 
 # Mikrocosmo
 
-Ó vi com meu olho mas não com minha Carne. Minha carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó um não é um real, um é um que não é real, ó pesadelos intermináveis e incomreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
+Ó vi com meu olho mas não com minha Carne. Minha Carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó; um não é real, um tem pesadelos intermináveis e incompreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
 
 Peixe que me trouxe e me revelou o que já havia pela Lua guardado; emergiu e vi, com os olhos e não com os olhos da Carne. Ó é Tú vidência; ó é Tú Alma que permite vê mesmo sob a incredulidade de minha Carne e mente contida.
 
