@@ -12,4 +12,4 @@
 ; [1977](./god/1977.md) - Sabedoria  
 ; [Suffring 63](./god/suffering-63.md) - Prisão de Ferro Negro  
 ; [Lamentos de 37,Clemência](./god/sue.md) - Lamentos de vossa 37, pela Clemência da Perdição.  
-; [Peixe-Mikrokosmo](./god/m.md) - Pensamentos inúteis de uma mente inútil que só consegue se comunicar por textos inúteis.
+; [נננ](./god/m.md) - Pensamentos inúteis de uma mente inútil que só consegue se comunicar por textos inúteis.
