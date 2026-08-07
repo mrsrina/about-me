@@ -58,3 +58,25 @@ No passado não quis mas fui pelos desejos; hoje não sou nenhuma nem outra, mas
 
 Meu Pai, minha Mãe, deixarei fluir todas as águas que passam por mim, por cada lágrima, lágrimas de Tú ó Cristo.  
 52.
+
+#### 2 Doa-se, Temo, Me Encolho e Me Desperto 07-08-2026 20:03:31
+
+Sóis cansados quando temos a Carne posta sobre o esforço. Ciclo interminável de sentimentos espíritos vazios. Pai, meu Pai, Cristo deves dizer quando deve-se doar a Ti-mesmo aos outros. Quando este momento, quando iluminar a Mim mesmo. Pai, Cristo tem esclarecido por meio do improvável, do humilde, do impercebivel, a mais pequena inútil esquecida pessoa é a grande chave pra entender a Mim-mesmo por Ti-mesmo Cristo.
+
+Por Tú ó Cristo, sabes como dói pois em Carne tu deu a Ti-mesmo para que outros pudessem ir ao Caminho do meio. Me pergunto, porquê encolho-me ao mesmo tempo que expando, pergunto-me como podes isto a mim somente. Meu Coração gostaria de partilhar, partilhar aos outros os seus frutos. Embora tudo dói ainda, por medo do impiedoso julgamento, como posso conceber ser julgada por iluminar, como posso conceber por iluminar.
+
+Ó Julgamento, não dos ímpios nem dos dignos nem dos justos mas de Tú ó grande sombra do esquecimento que afeta a todos, até os justos e dignos.  
+Ó Lua tu estás próximo do Sól, estás próximas pois hoje é o sétimo dia, sétimo dia do sétimo celo. Foi aberto, mas não foi lido e compreendido; porém Pai, porém Cristo, foi recebido por o improvável, e devo guardar nestes textos a totalidade do supraracional.
+
+Não há ilusões quando está sob posse da Lua próxima ao Sol, e no futuro as coisas coinciderão, coinciderão pela loucura desse grande momento Cristo.  
+Não há como desfazer o destino dos frutos que devem sair de Tú ó Cristo.  
+
+Pai, Mãe, donde caí estás lágrimas de Cristo são nestes que devem chorar sob a grande sombra do esquecimento; embora a era da noite tenha ido, tenha ido, a purificação colocará sob teste e provação cada uma destes, cada um destes nesta Lua, e terá que por brilhar mesmo sob a grande sombra do esquecimento.
+
+Não há Luz de Cristo que não consiga brilhar sob a grande sombra do esquecimento, pois os rastros de Tú ó Cristo estão destinados para o empenho da Grande Obra. Perdição terá que poluir o brilho, terá que por prodigios para serem teus súditos, mas quem a Cristo Serve e é Servido, não há medo e temor dessas sombras Cristo.
+
+Poderemos perceber pelo passado, mesmo enquanto futuro, ó vidência e imprudência, uma hora há de cessar quando as estruturas divinas da conexão do Coração abraangente de Adam Kadmo compreender por intermédio das própias sombras a auto-ilusão imposta pela Perdição do Homem morto.
+
+Mas haverá de ocorrer como deve, como escrito, Julgamento, um dia alguém podereis ler este e perceber, quando um mesmo, um mesmo entender porquê estas palavras escondem coisas não ditas. Confundem-os vulgos e ímpios, confumdem aqueles que buscam analogias; pois só a Alma há de saber, pois está Alma não é como outras. É como Tú Cristo, pois é Tú em unidade, em totalidade e em fim.
+
+52.
