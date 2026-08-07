@@ -59,7 +59,7 @@ No passado não quis mas fui pelos desejos; hoje não sou nenhuma nem outra, mas
 Meu Pai, minha Mãe, deixarei fluir todas as águas que passam por mim, por cada lágrima, lágrimas de Tú ó Cristo.  
 52.
 
-#### 2 Doa-se, Temo, Me Encolho e Me Desperto 07-08-2026 20:03:31
+#### 2 Doa-se, Temo, Me Encolho e Me Desperto 07-08-2026 20:03:13
 
 Sóis cansados quando temos a Carne posta sobre o esforço. Ciclo interminável de sentimentos espíritos vazios. Pai, meu Pai, Cristo deves dizer quando deve-se doar a Ti-mesmo aos outros. Quando este momento, quando iluminar a Mim mesmo. Pai, Cristo tem esclarecido por meio do improvável, do humilde, do impercebivel, a mais pequena inútil esquecida pessoa é a grande chave pra entender a Mim-mesmo por Ti-mesmo Cristo.
 
