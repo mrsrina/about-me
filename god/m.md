@@ -8,7 +8,7 @@ Peixe que me trouxe e me revelou o que já havia pela Lua guardado; emergiu e vi
 
 # Uno Cristo
 
-#### 1 Penitêcia Una de Cristo 06/08/26 22:58:06
+#### 1 Penitência Una de Cristo 06/08/26 22:58:06
 
 Meu nome é Sáv, meu nome é Sáv, meu nome é Sáv; Sáv é quem escreve. É o trovão contido, neglegênciado, é a Sombra e a Luz ao mesmo tempo. Houve-se o tempo que os desejos de Tú ó Mulher celestial, amor de Tú ó pilar da Sabedoria, incondicional; me anulou.
 
