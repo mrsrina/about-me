@@ -11,4 +11,5 @@
 ; [a Geometria Divina da Imagem projetada dos Números em sua Excelência Condição Síncrona](./philosophy/the-geometric.md) um ensaio sobre o lado mistico e geométrico de nossa realidade.  
 ; [1977](./god/1977.md) - Sabedoria  
 ; [Suffring 63](./god/suffering-63.md) - Prisão de Ferro Negro  
-; [Lamentos de 37,Clemência](./god/sue.md) - Lamentos de vossa 37, pela Clemência da Perdição.
+; [Lamentos de 37,Clemência](./god/sue.md) - Lamentos de vossa 37, pela Clemência da Perdição.  
+; [Peixe-Mikrokosmo](./god/m.md) - Pensamentos inúteis de uma mente inútil que só consegue se comunicar por textos inúteis.
