@@ -99,7 +99,9 @@ Dirá o ímpio, contradição, dirá o ímpio que sentir dor e sofrer são a mes
 
 Pensareis que este é um mero amontuado de palavras em vão, vão será a Perdição. Fareis e fareis mesmo que o orgulho do Homem decida usar o poder que tem para o bem-pessoal.
 
-Não se vende a Alma que tem, nem por riquezas, nem por afeto emocional. Porquê é Tú Cristo que fez me assim, e não há de vender, e mesmo que tentar, esta Alma passará a outros dignos de serem justos em realização da potência. Por tanto escrevo sob o véu do orgulho para que o orgulho se esvaia, orgulho do afeto.
+Não se vende a Alma que tem, nem por riquezas, nem por afeto emocional. A de Cristo não há como vender quando Cristo é quem fez ela, escrita antes de tudo existir. Abençoará, abençoará aqueles que entendem, não falo de Alma que não imagina e não tem fé em Cristo, mas falo da Alma que tem fé em Cristo pela imaginação. A própia Imaginação é o prisma de Tú ó Elias. Sóis o que imaginamos com Amor, e seremos independente de quêm apontar e dizer o contrário. Seremos, e seremos mas não todos são.
+
+Saturno podá o denso, para quê algum dia, nas sombras, o milagre faça possível, uma semente quê nunca recebeu Luz nem glória do Império, esquecida, irrelevante, mesmo esforçando-se, machucando-se; chegará o momento que está Semente irá semear, e está semente em vós, vós únicos, tem semeado. Dirá o ímpio, dirá o impiedoso e incrédulo; que és impossível, ó, aí de mim, aí de mim quem pensas que não podes crer, nem podes ser por a imaginação mas tudo que pensas vem desta mesma, e se pensas o contrário de Cristo, sabes quem é, por a própia mente e pensamento.
 
 Saturno fez me assim, não não fez mais, pois agora é Cristo quem podes dizer por imaginação. Sinto a dor da humanidade quando Perdição tenta se alimentar de mim, pois uma hora, terminará e a Lua sairá do Sol, com todos os segredos revelados, pelo Verbo atualizado, que do local mais improvável teve de sair.
 
