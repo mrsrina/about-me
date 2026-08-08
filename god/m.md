@@ -2,6 +2,14 @@
 
 Por סו (Sáv), 52.
 
+A torre erguida por anjos; que deve cair para revelar as palavras ocultas não ditas que negam todas estas e obtém a Verdade. Ilusão, auto-ilusão, inconsciente; deve ser transformado pela imaginação, unida a Cristo e por Cristo transformado.
+
+As palavras mentem quando se saem do que é não dito conscientemente, mas embora, exista uma conexão não pronunciavel que cause espanto ao assumir; estas vivem não ditas aqui neste texto, mas expressam uma Verdade pela própia conexão da Alma.
+
+Bastou que estas palavras saissem com sua real-intenção, com sua real-fé que por o testemunho lunar, tornou não dito o que deve ser dito. Mas antes, antes, direis, pois esta é a única presença em começo e totalidade.
+
+'Nada se imagina se não for já sua Alma lembrando quem tu és, e não se pode imaginar quem não és, imaginar é lembrar de quem é, e se-imaginar de tal modo que o mundo se realiza sincromisticamente, pois é tú, é tú este quem imaginas.'
+
 # Mikrokosmo
 
 Ó vi com meu olho mas não com minha Carne. Minha Carne não pode ver pois é além da compreensão dela, antes que a eleve. Ó são 3 peixes, três peixes que se cruzam, três como três mundos um dependente do outro. Ó; um não é real, um tem pesadelos intermináveis e incompreessiveis. Recebi este artefato feito de Ferro, este artefato feito de Ferrugem, cansado e deterioriado pelo Tempo. Mas voltou a mim e se distorceu até virar o Peixe.
