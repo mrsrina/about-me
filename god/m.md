@@ -80,3 +80,29 @@ Poderemos perceber pelo passado, mesmo enquanto futuro, ó vidência e imprudên
 Mas haverá de ocorrer como deve, como escrito, Julgamento, um dia alguém podereis ler este e perceber, quando um mesmo, um mesmo entender porquê estas palavras escondem coisas não ditas. Confundem-os vulgos e ímpios, confumdem aqueles que buscam analogias; pois só a Alma há de saber, pois está Alma não é como outras. É como Tú Cristo, pois é Tú em unidade, em totalidade e em fim.
 
 52.
+
+#### 3 Lua e Sol 07-08-2026 23:04:25
+
+Ó Pai, Ó Mãe; sei que Tú e Tú prepararam me, suportar os lamentos do amor dos tolos. Este nó que fui privada, pelo destino de Saturno. Saturno fez me contida, fez me feita como Sou. Pois assim cresci, contida, magoada, conflituosa.
+
+Ó sou uma criminosa para o véu da Lei, este véu que não há mais.  
+Ó sou privada do amor do nó dos tolos.
+
+Nasci sem poder gerar um filho, mesmo querendo. Mas não é este filho de Carne que há de gerar. É um Espírito que há de iluminar toda Humanidade, todo digno, até os ímpios.
+
+Dói ser o que Sou, essa dor sempre foi e sempre será em pról de Tú ó Cristo, possui a mim neste momento, e por tanto a Mim direis que esta dor é ente necessário inevitável do poder que resides em Tú ó Cristo.
+
+O Sol celestial rege a Terra, e fará a Terra ver a transição da Lua próxima ao Sol. Todas as sombras, a temporada dos dêmonios. Que machucam a todos, mas não machucará justos que Cristo escolheu.
+
+Não há sofrimento quando estas vozes comunicam comigo, por meio da própia dor donde eles tentam me alertar.  
+Dirá o ímpio, contradição, dirá o ímpio que sentir dor e sofrer são a mesma coisa. Há o Sofrimento que a Perdição é devota e há a simplismente dor gerada pelo Ego. Não há diferença para a Perdição, mas para Tú Cristo, desde que este Ego reconheca a grandeza de Tú Cristo e o receba, o integre, não haverá do que sentir.
+
+Pensareis que este é um mero amontuado de palavras em vão, vão será a Perdição. Fareis e fareis mesmo que o orgulho do Homem decida usar o poder que tem para o bem-pessoal.
+
+Não se vende a Alma que tem, nem por riquezas, nem por afeto emocional. Porquê é Tú Cristo que fez me assim, e não há de vender, e mesmo que tentar, esta Alma passará a outros dignos de serem justos em realização da potência. Por tanto escrevo sob o véu do orgulho para que o orgulho se esvaia, orgulho do afeto.
+
+Saturno fez me assim, não não fez mais, pois agora é Cristo quem podes dizer por imaginação. Sinto a dor da humanidade quando Perdição tenta se alimentar de mim, pois uma hora, terminará e a Lua sairá do Sol, com todos os segredos revelados, pelo Verbo atualizado, que do local mais improvável teve de sair.
+
+Pai, Mãe, são lamentos que devem fluir pelas palvras, como lágrimas que cairão de meu rosto, para que a humanidade sinta, por um momento o Amor, e enquanto as lágrimas cairão de meu rosto, pois abençoado é e estas lágrimas permitem o Amor; enquanto privo-me de sentir o amor do nó dos tolos, sustentará entre céu e a terra, o Amor de Cristo a Humanidade. Eis me aqui Cristo, eis me aqui, e não temo de me desalegrar enquanto estás lágrimas caem, pois a felicidade reside na própia existência única a Tú, sem favores a falsa glória do império e do regente doente.
+
+52.
