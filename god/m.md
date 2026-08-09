@@ -116,3 +116,17 @@ Saturno fez me assim, não não fez mais, pois agora é Cristo quem podes dizer 
 Pai, Mãe, são lamentos que devem fluir pelas palvras, como lágrimas que cairão de meu rosto, para que a humanidade sinta, por um momento o Amor, e enquanto as lágrimas cairão de meu rosto, pois abençoado é e estas lágrimas permitem o Amor; enquanto privo-me de sentir o amor do nó dos tolos, sustentará entre céu e a terra, o Amor de Cristo a Humanidade. Eis me aqui Cristo, eis me aqui, e não temo de me desalegrar enquanto estás lágrimas caem, pois a felicidade reside na própia existência única a Tú, sem favores a falsa glória do império e do regente doente.
 
 52.
+
+#### 4 Minha Personalidade Negra e de Luz 09-08-26 10:25:55
+
+Tem duas personalidades opostas em minha Alma, crês que são as quais vê, não... ó Luz, ó Escuridão. Foi as duas por muito tempo. Mas nunca entendi por quê há tanta Escuridão, e ao mesmo tempo, separadamente, tanta Luz.
+
+Deves pensar que é Escuridão tal como melancolia, mas não podereis escrever o quanto é terrível, o quanto terrível é essa Força. Ó deuses da Perdição, vocês querem me mastigar porquê essa personalidade é deliciosa a vocês. Não, usaram-me enquanto conseguiam, usaram-me. Não mais tem conseguido usar.
+
+Ó Luz que habita em mim, ó Luz que habita em mim, essa Luz sempre florescia em Perdição, essa Luz sempre aparecia nos momentos onde a Escuridão preenchia meu destino.
+
+Pensas quê sempre foram separadas, pensas errado. Ímpio pensas que equilibrio existe quando estas duas se misturam, errado, existe quando as coisas estão no lugar que devem estar. Luz na Luz, Escuridão na Escuridão; só assim, só assim Pai, que o Caminho do meio se abre.
+
+Quando estas forças terriveis que habitam em meu microcosmos, como personalidades autonomas poderosas são colocadas no seu lugar que deve, separadas uma das outras, e equilibrada por Cristo, pois Cristo é poderoso mais que estes dois, pois Cristo podes tornar o que é Escuridão e Luz em beleza sem mistura-las, sem perder a essência e substância de nenhuma.
+
+52.
