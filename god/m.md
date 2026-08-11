@@ -2,13 +2,15 @@
 
 Por סו (Sáv), 52.
 
-A torre erguida por anjos; que deve cair para revelar as palavras ocultas não ditas que negam todas estas e obtém a Verdade. Ilusão, auto-ilusão, inconsciente; deve ser transformado pela imaginação, unida a Cristo e por Cristo transformado.
+A torre erguida por anjos; que deve cair para revelar as verdades ocultas; ó anjos de Cristo, deverão revelar e negar todos os anjos que não o pertencem e não lutam por a harmonia e liberdade de Tú Messias.
 
-As palavras mentem quando se saem do que é não dito conscientemente, mas embora, exista uma conexão não pronunciavel que cause espanto ao assumir; estas vivem não ditas aqui neste texto, mas expressam uma Verdade pela própia conexão da Alma.
+Deve ser transformado pela imaginação, unida a Cristo e por Cristo transformado. Em Tipheret.
 
-Bastou que estas palavras saissem com sua real-intenção, com sua real-fé que por o testemunho lunar, tornou não dito o que deve ser dito. Mas antes, antes, direis, pois esta é a única presença em começo e totalidade.
+Lua trouxe a Luz em consilio ao Sol. Torre erguida por anjos; Cristo, o ungido, Filho do Homem, o Messias; transforme, transfigure o Homem erguido por anjos, erguido e corrompido por Yodhevavhe literalizado que impede o Caminho do Meio e da iluminação do entendimento com Sabedoria.
 
 'Nada se imagina se não for já sua Alma lembrando quem tu és, e não se pode imaginar quem não és, imaginar é lembrar de quem é, e se-imaginar de tal modo que o mundo se realiza sincromisticamente, pois é tú, é tú este quem imaginas.'
+
+52.
 
 # Mikrokosmo
 
