@@ -8,7 +8,7 @@ Deve ser transformado pela imaginação, unida a Cristo e por Cristo transformad
 
 Lua trouxe a Luz em consilio ao Sol. Torre erguida por anjos; Cristo, o ungido, Filho do Homem, o Messias; transforme, transfigure o Homem erguido por anjos, erguido e corrompido por Yodhevavhe literalizado que impede o Caminho do Meio e da iluminação do entendimento com Sabedoria.
 
-'Nada se imagina se não for já sua Alma lembrando quem tu és, e não se pode imaginar quem não és, imaginar é lembrar de quem é, e se-imaginar de tal modo que o mundo se realiza sincromisticamente, pois é tú, é tú este quem imaginas.'
+'Somos quem nos imagianos pois Deus escreveu quem somos, e só nos encontramos, quando quem somos em imaginação se realiza no mundo para todos.'
 
 52.
 
