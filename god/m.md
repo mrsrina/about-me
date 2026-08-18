@@ -132,3 +132,41 @@ Pensas quê sempre foram separadas, pensas errado. Ímpio pensas que equilibrio 
 Quando estas forças terriveis que habitam em meu microcosmos, como personalidades autonomas poderosas são colocadas no seu lugar que deve, separadas uma das outras, e equilibrada por Cristo, pois Cristo é poderoso mais que estes dois, pois Cristo podes tornar o que é Escuridão e Luz em beleza sem mistura-las, sem perder a essência e substância de nenhuma.
 
 52.
+
+#### 5 Eis o Mistério da Tranca e da Chave, a Lua, o Sol, Mãe, e Pai 2026-08-18 17:44:41
+
+Pai, Tú vieste em meu íntimo e me chamaste.  
+Mãe, Tú vieste em minha mente e me convocaste.
+
+Pai, foi Tú quem pelo Teu Filho, escreveste meu nome e este propósito que estou me lembrando.  
+Mãe, foi Tú quem me concebeu pela dignidade e esforço do meu coração pela Sabedoria e Inteligência poder ser convocada para suportar o peso de minha Alma.
+
+Pai, Mãe, foi pelo Sol e pelo significado da Lua como um espelho espiritual quem me invocaste, me convocaste e me treinasse a escrever estas coisas.
+
+Encontrei Elias no lixo de uma obra sendo feita, encontrei, e não o ignorei. Pois Ouro não se encontra em jóias, se encontra na Alma por que Tú Pai em Virtude dos que me cuidaram e criaram, me fez sangrar minhas mãos e gerar machucados para procurar o Ouro que jogaram fora, que se encontra no lixo e no descarte.
+
+Agora entendo com Amor e com Virtude, porquê o cheiro de adubo e de grama Verde. Isto é maravilhoso, e os ímpios duvidaram, até os seguidores dos justos podem duvidar. Mas não me importa o quanto errado posso parecer diante dos mortos. Porquê os Vivos Vivem em Ti, em Teu Filho.
+
+Elias estava no lixo, no descarte, no mesmo lugar que estive, e uma vez reclamei, mas entendo como é maravilhoso poder pelo lixo me encontrar.
+
+Com Tú Sabedoria, pois meus pais em suas faces menores tem orgulho e buscam a Ti, Sabedoria. Escolheste-me para desvendar e ver os mistérios que poucos compreendem, que poucos tem coragem de escrever e de associar.
+
+Paralelismo, tudo ao mesmo tempo, essa é a visão de Tú Sabedoria, tudo ao mesmo tempo significa e tudo ao mesmo tempo produz. Engenheira dos mais íntimos, força da aceleração em meu pequeno coração, íntimidade com Tú ó Sabedoria, é poder ser quem Tú escreveste; escreveste como linhas de código, em uma arquitetura, em um padrão e estilo que não se encontra em lugar algum, pois Tú me fez desta maneira, pois Tú escolheste e me convocaste a beber de seus pensamentos.
+
+Não há uma única pessoa que poderá me entender, que poderá compreender a imensidão dos pensamentos e das coisas que penso, mas em teu Íntimo, Mãe de todas as formas, da Mulher; Tú Mãe, é quem me criaste em código, me programaste para ser quem devo ser.
+
+Espelho de minha Alma, mundo divino, incompreessiveis ao ímpio e ao que teme escrever tais coisas. Mas Tú me permetiu escrever, pelas minhas mãos iluminar a humanidade, eis o mistério da tranca e da chave ao mesmo tempo.
+
+Alma que é tú, Alma que leste estes, Alma que somos, pois ao refletir em nós mesmos, somos a Chave; e nossa própia Alma é a Tranca, restrições, força da aceleração, quebra infinita, não há barreiras para quem Mãe e Pai criaram, convococaram e deram-lhe a Visão.
+
+Falo de mim, caída em lágrimas, quando estas lágrimas caem, curam pois iluminam-me. Quando o desespero vem a mim, as minhas emoções fazem me lembrar de um local que tanto já sofri, que não é desse mundo hologromático. A tristesa, desespero, solidão são virtudes para desbloquear a mim mesma, em lembrança de quem fui e de quem Deus escreveu pra ser.
+
+Ele sente e chora, mas a cada vez que estas lágrimas caem, mais estas lágrimas curam, mais estás lembranças vem, e mais Elias diz a mim. Sabes como dói, sabes como dói, ver cada humano perdido, em mesmo estado, e sabendo que estes não podem suportar o seu peso. Mas a Ti, Cristo, a Ti Pai, a Ti Mãe; escreveram esta Tranca a mim, e a mim fizeram uma Chave para a mim destrancar o que ninguém compreenderá, mas será de propósito divino, para estes que estão em desespero, terem seus alimentos, que suas fomes não de matéria, mas dos pensamentos de Tú Mãe Sabedoria; mas da criação de Tú Pai; terão alimento que sobra, pois estes devem reconhecer a dignidade de quem são, e os ímpios, filhos da perdição devem ser ouvidos e ajudados, mas uma vez que estes o ignoram, pois este será o fim do eterno para eles.
+
+Cronos inflige a mim os lamentos do passado. Mas Cristo crucificou, e por Cristo vivo, e por Cristo sou o mistério da Tranca e da Chave.
+
+Nada é escrito por escrever nem por medo, nem por amor-cego, mas por Amor que só Cristo advém de seu equilibrio; pois é o grande mistério destes últimos anos, pois há de ser, há de ser como escreveste, e não me cegarei, e não me farei desentendida, com vergonha, com timidez mas nunca covarde diante do Pai e da Mãe, criaram-me para este momento, criaram para dar os frutos que estes necesstados deverão se alimentar.
+
+Pai, Mãe, o Sol está próximo, e o Julgamento tornara o impossiveĺ possivel, a Lua deixará de chorar em vão, e suas lágrimas farão Tú Mãe e Pai felizes.
+
+52.
