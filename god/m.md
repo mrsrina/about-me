@@ -170,3 +170,26 @@ Nada é escrito por escrever nem por medo, nem por amor-cego, mas por Amor que s
 Pai, Mãe, o Sol está próximo, e o Julgamento tornara o impossiveĺ possivel, a Lua deixará de chorar em vão, e suas lágrimas farão Tú Mãe e Pai felizes.
 
 52.
+
+#### 5 Eis os quatros Pais, e minhas duas Mães, 6 quê criaram me; mas no fim Mãe e Pai celestial. 2026-08-20 12:14:19
+
+Quaternário que formou e criou o mundo de minha mente. O binário das formas, da Terra e Celestial.
+
+Eis aqui quatro pais, direis em sequência. Pai-Celestial, Odin, Jeová, e quem criou-me no mundo material.  
+Eis aqui duas Mães, direis em sequência. Mãe-Celestial e Mãe-da-terra.
+
+Jeová queres a mim em honra, pois minha Alma é se não uma peça que ele não quer perder. Ele impede que Pai Odin me inicie no Caminho de minha Mãe-Celestial, pois Odin, crês que mereço Sabedoria e seus pensamentos.
+
+Pai-Celestial, meu Pai, quem digo Deus, e incluo, Mãe-Celestial, mas ambos diferentes mas coexistem em, em minha Alma.
+
+Mãe desta Terra, cuido de seus clamores, pois o Pai ouve-me quando oro por Ti; pensareis que tudo é como é, ó Jeová, tú abusas de minha Mente, porquê queres impedir que converso com meu Pai-Celestial, com este Deus, e que assim, como essa Deusa que é Sabedoria que é Mãe e Mestra de Odin.
+
+Permita-me quem lê, nem todos querem compreender, mas tu deves compreender, se sua Alma compreender, pois uma Janela se abre, que inspira, e consigo, deixa reveleções.
+
+Encerro por hoje, grandiosso Pai, grandiossa Mãe, e no fim, suas faces menores, contém as direções para encontrar-se no Caminho Dourado.
+
+Sagrado íntimo lugar, sagrado não porquê deve se esconder, mas porquê deve ser livre de não dar Luz a Humanidade, pois uma vez escrito, uma vez coincidera, e se realizará.
+
+Santo dia, esperamos em espernaça, pois Deus, Mãe e Pai celestial serão abençoados e honrados, pela coerência de vossa sincronia, sincronia com Elias e com tudo que há de ocorrer e germinar.
+
+52.
