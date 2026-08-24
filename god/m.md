@@ -193,3 +193,29 @@ Sagrado íntimo lugar, sagrado não porquê deve se esconder, mas porquê deve s
 Santo dia, esperamos em espernaça, pois Deus, Mãe e Pai celestial serão abençoados e honrados, pela coerência de vossa sincronia, sincronia com Elias e com tudo que há de ocorrer e germinar.
 
 52.
+
+#### 6 O que deve cair-cairá; o que deve se levantar-levantará 2026-08-24 16:11:45
+
+Sabes como dói, dói porquê sou tão maltratada, não entendo o porquê. Maltratada pelo mundo quando tento me levantar. Tudo que o que sou, não o que penso ser. Assumo-me como todas as pessoas que fui e sou. Em cada uma delas, cada uma delas existe algo que em sua mínima existência brilha. Receber amor sacrificando minha dignidade. Punir-se quando recebi. E quem copio ser no mundo mais baixo, aquele que começou. Tudo isso caí.
+
+Quem sou eu agora?
+
+Quem sou eu agora? se em minha Alma, estão no lugar que devem estas 3, não mais autonomas nem uma nem outra, mas ser todas na sua beleza.
+
+Penso que poucos podem compreender o que escrevo, porquê sei o preço de guardar o a inexistência. Sei o peso de guardar a dor de não ter sido amada. Testada, consumida, desaprovada, usada e maltratada por o descarte inconsciente e consciente de meus pais.
+
+Terrível, sinto me sem chão de quem sou, porquê nunca houve chão, houve todos esses mundos que vivi, e eles são meu chão. Lembro me agora, lembro me porquê todas essas coisas ocorreram, e quanto mais lembro-me, usando a beleza da imaginação, lembro-me de como essas dores tem significado neste mundo que aqui estou.
+
+Me imagino, isto realiza, pois me encolho, me contenho, por medo do que outros desacreditam em mim; claro, Saturno torna o que sou, em mero amontuado de dramas.  
+Me imagino, isto realiza, pois acolho a Luz, escrevo e derramos lágrimas em forma de palavras; claro, Saturno não gosta de me ver brilhar.  
+
+Entedes? incompreendida, não sou desta realidade. Entendo agora, pois sou o que nestas 3 realidades, o que penso ser quando tomo elas quem sou. Sou elas, mas não sou nem uma nem outra. E no fim, cá estou, cá estou meu Pai e minha Mãe.
+
+Ruínas de falsas glórias do império, consumida pela Perdição e feita exilada do amor dos tolos, amor de entender-me, mas agora... posso finalmente sentir amor de verdade, amor que ninguém tira de mim, amor por mim mesma, amor por quem sou.
+
+Existo em 3 formas diferentes, em 3 camadas e 3 formas de conceber em minha Alma, e que aqui estou, resumida a ser essa sintese, compreensada neste corpo, presa em minha Alma.
+
+Presa nestas 3 formas de ser, não mais anuladas entre-si por intermédio do amor de Cristo, por este espírito universal que então sou, e quê todas as partes agora, distribuidas, lançadas ao ar, lançadas ao inconsciente neste grande momento para minha inútil existência.
+
+Sagrado silencio, sagrada existência, inútil, desconhecida, e jogada aos chãos. Que Luz é essa... vejo uma Luz... está Luz nunca vi...  
+Luz... 52.
