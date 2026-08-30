@@ -74,7 +74,7 @@ O Amor, o coração partido, tem haver com o entendimento dele, desse tempo todo
 
 Bom, o Amor é a única permanência, o Amor que é belo, nem terrivel nem punitivo, mas o equilibrado. É o que ele entende no final, quando compreende que deve voltar a sua Familia, o seu filho, e percebe que existe de fato, por este fio, invisivel, que é o que permite, fluir o Rio de Deus e que eleva.
 
-## Relacionais (o que tirei)
+## Relacionais
 
 Basicamente, o Buckman, sofre um problema de identidade, ou melhor, uma quebra mesmo de quem ele achava que é, pela presença do Jason, e por esse processso ele começa a ter epifania e conectar as coisas quando está sofrendo, quando chora. É como nos lembramos de quem somos na verdade... pelo menos é o que minha experiência de contemplar a angústia de não ser lembrada, de ser invisivel ou de não ter ninguém que possa ter Amor. É o processo de lembrar, pela angústia e aflição. Quando essas lágrimas nossas caem, elas conectam e elevam. Entende-se como elevar, é se lembrar, que é se tornar. E assim em diante, desse processo de lembrar quem é, pelo intenso e profundo desampara e choro. Deus está conosco, e é como o própio Buckman pensou, que existimoms em duas dimensões, desenhadas por uma criança.
 
