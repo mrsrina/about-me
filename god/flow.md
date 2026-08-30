@@ -1,5 +1,7 @@
 ## Buckman
 
+### Citações que devem ser lidas
+
 ‘“Por que escolhi Taverner?”, pensou. “Num planeta de seis bilhões de pessoas... Exatamente este homem que nunca fez mal a ninguém, nunca fez nada de errado exceto deixar que, seu dossiê chamasse a atenção das autoridades. É isso mesmo”, percebeu. “Jason Taverner chamou a nossa atenção, e, como dizem, uma vez que você chama a atenção das autoridades, elas nunca te esquecem. ”’
 —Philip K. Dick, “Fluam, Minhas Lágrimas, Disse o Policial”
 
@@ -50,7 +52,11 @@ A plangente angústia deixada pelo sonho ainda lhe corroía o peito; continuou p
 “Vou pegar meu garotinho. Amanhã cedo vou para a Flórida pegar o Barney. De agora em diante ele vai ficar comigo. Nós dois juntos. Não importam as consequências. Mas agora não vai haver nenhuma consequência; tudo terminou. Tudo está a salvo. Para sempre. ”’
 —Philip K. Dick, “Fluam, Minhas Lágrimas, Disse o Policial”
 
+## ...
+
 Têm algumas camadas de entendimento, citarei as evidentes primeiro, depois as relacionadas entre si, de todos esses textos.
+
+## Entendimento
 
 O que Felix Buckman, básicamente, sendo, uma autoridade regente daquela realidade onde o Jason não existia, ele seria invisivel pra ele, caso, não tivesse feito seu papel, escandaloso. Uma anomalia pra Buckman, que é como fosse, uma presença dele ser um regente desse macrocosmos. E quando Jason estava presente, isso levou a uma cascata de eventos onde a sua propia autoridade foi questionada. Ele sentiu sua presença social básicamente, instável. Alguém invisivel, alguém que passou por todo o rigor dele. Foi um raio sobre o ego dele, um raio também sobre o própio papel dele. O fato de Jason Tarvener ter esse impulso irracional, é porquê na realidade onde ele está presente, ele tem esse magnetismo (tipo 6), essa vontade de agir porquê é famoso (que de fato é na outra realidade), só que os papeis são trocados. E então Jason, com toda clareza, sabe, que onde a sua realidade é presente, ou seu microcosmos digamos assim, é como uma lembrança. Ele excerce tal poder de magnetismo, excerce tais aptidões, e sua vontade "irracional" do ponto de vista de alguém que não sabe quem ele é. Brevemente, dá pra dizer que ele tem acesso a lembrança de quem é, que é claramente, a lembrança de quem é de verdade, que no seu mundo, ele é realmente capacitado para ser cantor, ser famoso, atráir pessoas devido seu charme etc.
 
@@ -68,7 +74,7 @@ O Amor, o coração partido, tem haver com o entendimento dele, desse tempo todo
 
 Bom, o Amor é a única permanência, o Amor que é belo, nem terrivel nem punitivo, mas o equilibrado. É o que ele entende no final, quando compreende que deve voltar a sua Familia, o seu filho, e percebe que existe de fato, por este fio, invisivel, que é o que permite, fluir o Rio de Deus e que eleva.
 
--- comentários relacionais agora.
+## Relacionais (o que tirei)
 
 Basicamente, o Buckman, sofre um problema de identidade, ou melhor, uma quebra mesmo de quem ele achava que é, pela presença do Jason, e por esse processso ele começa a ter epifania e conectar as coisas quando está sofrendo, quando chora. É como nos lembramos de quem somos na verdade... pelo menos é o que minha experiência de contemplar a angústia de não ser lembrada, de ser invisivel ou de não ter ninguém que possa ter Amor. É o processo de lembrar, pela angústia e aflição. Quando essas lágrimas nossas caem, elas conectam e elevam. Entende-se como elevar, é se lembrar, que é se tornar. E assim em diante, desse processo de lembrar quem é, pelo intenso e profundo desampara e choro. Deus está conosco, e é como o própio Buckman pensou, que existimoms em duas dimensões, desenhadas por uma criança.
 
