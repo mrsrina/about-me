@@ -2,7 +2,7 @@
 
 Dói... pensar que nesta vida, nesta vida que me encontro, pude esquecer o quanto fui... o quanto em destino estive presa nos lamentos desse reino consumido e regido pela Perdição...
 
-Nas noites que minhas lágrimas cairão, estas noites... infames... que passei nesta vida... nestas eras... tudo é doloroso quanto se escolhe esquecer.
+Nas noites que minhas lágrimas caíram, estas noites... infames... que passei nesta vida... nestas eras... tudo é doloroso quanto se escolhe esquecer.
 
 As únicas lembranças... que me conectam a essa grande memória... é quando estava lá... no gramado, num gramado ao lado de um grande castelo, para com os guardas e soldados, comer e dar a suas familias apoio... aos pobres necessitados alimentos... ah... lembranças vividas e felizes que esqueci...
 
