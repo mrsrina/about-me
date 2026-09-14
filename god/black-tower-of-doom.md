@@ -74,10 +74,14 @@ No multiverso temos várias pessoas que vivem em nós e são nós. Herois, polit
 Para integrar, precisamos ir aos nossos traumas. É revivelos consciêntemente.  
 
 A expectativa idealizada, antes do trauma precisa ser conscientemente carregada, e independente do que é, deve ser feito.  
-Então, enfrentar o medo que expõe essa ferida do trauma, é fazer denovo a mesma coisa (claro, com segurança, embora pareça dificil para algumas coisas precisa ser feito). Não importa como, mas precisa ser feito. Assim, quando carregado a sua consciência idealizando a expectativa, quando o trauma chegar, você terá consciência que nem mesmo, a expectativa erra real, nem mesmo o trauma te fará ser o proposito de sua vida.
+Então, enfrentar o medo que expõe essa ferida do trauma, é fazer denovo a mesma coisa (claro, com segurança, embora pareça dificil para algumas coisas precisa ser feito). Não importa como, mas precisa ser feito. Assim, quando carregado a sua consciência idealizando a expectativa, quando o trauma chegar, você terá consciência que nem mesmo, a expectativa era real, nem mesmo o trauma te fará ser o proposito de sua vida.
 
 Se a culpa vier com auto-punição, dor e angústia severa. Então a iluminação não foi suficiente e é preciso questionar mais a fundo.  
 Mas a medida da tentativa e erro, deve se sentir menos culpa conforme ilumina as partes não bem observadas. E assim, quando não houver mais culpa alguma deste reviver, então seu trauma está integrando o que antes, estava rejeitado na sombra.
+
+Os artefatos sagrados perdidos, que devemos resgatar estão em cada nó. Se a expectativa for carregada conscientemente, e então, após o trauma, for esvaziado a expecativa; o artefato será resgatado. Nenhuma energia ira ficar presa ali.
+
+É algo que pode ser de uma única vez ou podem ser várias vezes conforme a necessidade da auto-iluminação. 
 
 ## Sonhos e Experiencias
 
