@@ -8,19 +8,19 @@ Apresentarei uma série de postulações místicas sobre a presença dos portõe
 
 A torre negra se encontra na Sefirot Daath, a Sefirot da Morte, onde o Abismo se encontra, lá, está a torre negra, onde os caídos iniciados estão, sem conseguir realizar o salto de ascenção pela fé para conectar a Kether. A potência divina onde os mundos do multiverso estão.
 
-## Os Portões Psquiquicos da Torre Negra
+## Os Portões Psiquicos da Torre Negra
 
 Este é um portão que encontrei, eu o entrei, e nele, pude compreender alguns caminhos que embora, dificultosos, são várias encruzilhadas de escolhas em relação a sua Alma, a sua Psique.
 
-Os gatilhos que estão inconscientes em nós, ao serem iluminados ao entrar na noite escura da Alma, devem ser desarmados. É um nó psquico que causa sofrimento, e mesmo entendendo-o a sua raíz, existem várias outras armadilhas que estão armadas próximas e em camadas mais profundas da Alma.
+Os gatilhos que estão inconscientes em nós, ao serem iluminados ao entrar na noite escura da Alma, devem ser desarmados. É um nó psico que causa sofrimento, e mesmo entendendo-o a sua raíz, existem várias outras armadilhas que estão armadas próximas e em camadas mais profundas da Alma.
 
 ### Urso, Armadilha de Urso, Lobos e Lobisomen
 
-O Urso, sendo um animal de hibernação, que dorme longos meses para então sair em busca de alimento; é dentro do nosso microcosmos a potência animal da força psquiquica do enfrentamento e da evolução de auto-consciência nossa. Mas há homens para tentarem o caçar, e usam as armadilhas de ursos.
+O Urso, sendo um animal de hibernação, que dorme longos meses para então sair em busca de alimento; é dentro do nosso microcosmos a potência animal da força psique do enfrentamento e da evolução de auto-consciência nossa. Mas há homens para tentarem o caçar, e usam as armadilhas de ursos.
 
 O Urso também, lida com nossas forças opostas internas, por exemplo, o coletivo interno que podemos acolher em nós, os Lobos. Os Lobos são muito importante em momentos diferentes, mas Ursos e Lobos se enfrentam na medida da consciência das forças que temos que lidar.
 
-Na noite escura da Alma, podemos optar por duas escolhas de direcionar nossa força psquica, uma delas é para o coletivo interno, e então ali, está a força de estar em grupo, buscar no grupo, para compensar o esforço em desatar alguns nós de traumas. O grupo de amigos, a conversa íntima (da Alma) em grupo ou até mesmo, lobos desconhecidos, mas estes são perigosos.
+Na noite escura da Alma, podemos optar por duas escolhas de direcionar nossa força psiquica, uma delas é para o coletivo interno, e então ali, está a força de estar em grupo, buscar no grupo, para compensar o esforço em desatar alguns nós de traumas. O grupo de amigos, a conversa íntima (da Alma) em grupo ou até mesmo, lobos desconhecidos, mas estes são perigosos.
 
 O Lobisomen é uma anomalia da Força sexual que viola as normas (implicitas e explicitas) do coletivo, e as noites que o Lobisomen se transforma é a perca do controle, em relação ao grupo, ao lider e até mesmo para machucar outras pessoas. Isto pode ser raiva, perversidade, falta de amor própio e até prazer em sádismo descontrolado (que antes, estava no inconsciente rejeitado da pessoa).
 
